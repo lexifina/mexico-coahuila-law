@@ -1,0 +1,7 @@
+LEY PARA LA INTEGRACION Y FUNCIONAMIENTO DE LAS JUNTAS MUNICIPALES DE MEJORAMIENTO MORAL, CIVICO Y MATERIAL, DEL ESTADO DE COAHUILA
+Ley publicada en el Periódico Oficial del Estado de Coahuila de Zaragoza, el sábado 14 de diciembre de 1957.
+EL C. ROMAN CEPEDA FLORES, Gobernador Constitucional del Estado Independiente, Libre y Soberano de Coahuila de Zaragoza, a sus habitantes sabed:
+Que el H. Congreso del mismo, ha decretado lo que sigue:
+EL XL CONGRESO CONSTITUCIONAL DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA, D E C R E T A :
+Número 231.-
+LEY PARA LA INTEGRACION Y FUNCIONAMIENTO DE LAS JUNTAS MUNICIPALES DE MEJORAMIENTO MORAL, CIVICO Y MATERIAL, DEL ESTADO DE COAHUILA.
