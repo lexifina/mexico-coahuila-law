@@ -33,3 +33,4 @@ Enrique Dávila,
 Secretario-Diputado por el 3º. Distrito Electoral.
 Prof. J. Martínez M,
 Secretario-Diputado por el 12º. Distrito Electoral.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE CONSTITUCION.
