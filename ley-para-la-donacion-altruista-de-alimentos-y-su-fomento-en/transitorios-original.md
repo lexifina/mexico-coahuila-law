@@ -1,0 +1,19 @@
+TRANSITORIO
+UNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Coahuila de Zaragoza.
+DADO en el Salón de Sesiones del Congreso del Estado, en la ciudad de Saltillo, Coahuila, a los cuatro días del mes de diciembre de mil novecientos noventa y seis.
+DIPUTADO PRESIDENTE
+GERMAN FROTO MADARIAGA
+DIPUTADO SECRETARIO
+ENRIQUE ANGUIANO VALDEZ
+DIPUTADO SECRETARIO
+OSCAR MANUEL OLVEDA RAMIREZ
+IMPRIMASE, COMUNIQUESE Y OBSERVESE.
+Saltillo, Coahuila, 16 de diciembre de 1996.
+EL GOBERNADOR DEL ESTADO
+ROGELIO MONTEMAYOR SEGUY
+EL SECRETARIO DE GOBIERNO
+LIC. CARLOS JUARISTI SEPTIEN
+EL SECRETARIO DE FINANZAS
+LIC. ANTONIO JUAN MARCOS ISSA
+LA SECRETARIA DE SALUD Y DESARROLLO COMUNITARIO
+DRA. LOURDES QUINTANILLA RODRIGUEZ
