@@ -1,0 +1,2 @@
+P.O. 31 DE AGOSTO DE 1927.
+UNICO.- Por esta sola vez y teniendo en cuenta que el período para que han sido electos los Magistrados actualmente en ejercicio, ha comenzado ya, el Congreso hará la designación del Magistrado que deba encargarse del despacho de la Cuarta Sala, sin pedir terna a los Ayuntamientos, tan luego como entren en vigor estas reformas, que será la fecha de su promulgación en el Periódico Oficial del Estado.
