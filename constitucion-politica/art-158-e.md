@@ -2,9 +2,6 @@
 Artículo 158-E. Los principios de fidelidad estatal y municipal tienen por objeto consolidar una relación permanente de colaboración constructiva, corresponsable y de ayuda mutua entre los gobiernos del estado y de los municipios y de entre éstos con los organismos públicos autónomos, a favor del desarrollo democrático del estado, basado en el constante mejoramiento político, económico, social y cultural de la comunidad.
 Los gobiernos estatal y municipal y los organismos públicos autónomos, en la esfera de sus competencias, deberán actuar bajo los lineamientos señalados, a fin de mantener con la federación y con las entidades federativas una relación cooperativa e interdependiente, bajo el principio de fidelidad federal.
 Estos principios están vinculados directamente con los valores, principios y bases previstas en esta Constitución y demás leyes aplicables, bajo el estado humanista, social y democrático de derecho.
-(ADICIONADO CON LAS SECCIONES, APARTADOS Y ARTÍCULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
-CAPITULO II.
-El Gobierno Municipal.
-(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
-SECCION I.
-La División Territorial.
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
+APARTADO TERCERO.
+Las Funciones y Servicios Públicos Municipales.

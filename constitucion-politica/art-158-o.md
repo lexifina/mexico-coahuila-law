@@ -3,6 +3,9 @@ Artículo 158-O. El Estado podrá transferir o delegar a los Municipios, mediant
 En todo caso, la transferencia o delegación de funciones o servicios de la Federación o del Estado hacia los Municipios, debe ir acompañada de la asignación de los recursos financieros necesarios para el cumplimiento de la función o servicio transferidos. En estos casos, la transferencia o la delegación deberá programarse de manera gradual, a efecto de que el Municipio pueda asumir con responsabilidad la función o servicio de que se trate, bajo los principios de fidelidad federal y municipal.
 En la ley o en el convenio se preverá la correspondiente transferencia de medios financieros, así como las formas de control que se reserva el Estado.
 Los supuestos contenidos en este artículo se fundamentarán en una interpretación funcional de los artículos 115 y 116 de la Constitución Política de los Estados Unidos Mexicanos.
+(ADICIONADA CON LOS APARTADOS Y ARTICULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
+SECCION III.
+La Competencia Municipal.
 (ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
-APARTADO SEGUNDO.
-La Hacienda Municipal.
+CAPITULO I.
+Bases Fundamentales.
