@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE JULIO DE 2004)
+ARTÍCULO 134-B.- El Cronista Municipal será electo por las dos terceras partes de los miembros del ayuntamiento, a propuesta del Presidente Municipal. Su elección será con base a su demostrada vocación por custodiar y promover la crónica de los acontecimientos del devenir histórico de su comunidad; así como por su experiencia en el dominio del conocimiento de la historia local.
