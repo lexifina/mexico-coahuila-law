@@ -1,0 +1,22 @@
+Artículo Séptimo. La Junta Directiva, a través de la Procuraduría de la Familia, en base al Reglamento a que se refiere el artículo cuarto transitorio, deberá instalar las Unidades de Atención para la Prevención, Asistencia y Atención de la Violencia Familiar, quince días antes de la fecha en que entre en vigor esta Ley.
+D A D O en el Salón de Sesiones del Congreso del Estado, en la Ciudad de Saltillo, Coahuila, a los dieciséis días del mes de marzo del año dos mil dos.
+DIPUTADA PRESIDENTA
+NORMA VIOLETA DAVILA SALINAS
+DIPUTADA SECRETARIA
+ROXANA CUEVAS FLORES
+DIPUTADO SECRETARIO
+JESUS ZUÑIGA ROMERO
+IMPRIMASE, COMUNIQUESE Y OBSERVESE
+Saltillo, Coahuila, 29 de Abril de 2002
+EL GOBERNADOR DEL ESTADO
+LIC. ENRIQUE MARTINEZ Y MARTINEZ
+EL SECRETARIO DE GOBIERNO
+LIC. JOSE JESUS RAUL SIFUENTES GUERRERO
+EL SECRETARIO DE EDUCACION PUBLICA
+PROF. HUMBERTO MOREIRA VALDES
+LA SECRETARIA DE SALUD
+DRA. BERTHA C. CASTELLANOS MUÑOZ
+EL SECRETARIO DE DESARROLLO SOCIAL
+LIC. HORACIO DEL BOSQUE DAVILA
+EL SECRETARIO DE SEGURIDAD PUBLICA Y PROTECCION CIUDADANA
+CMDTE. ANTONIO GARZA GARCIA

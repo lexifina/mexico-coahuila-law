@@ -1,0 +1,1 @@
+Artículo Cuarto. Un mes después de su instalación, la Junta Directiva, formulará el Reglamento de las Unidades de Atención, para someterlo a la aprobación del Consejo Estatal para la Prevención, Asistencia y Atención de la Violencia Familiar.

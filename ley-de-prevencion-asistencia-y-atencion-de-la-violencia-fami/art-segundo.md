@@ -1,0 +1,1 @@
+Artículo Segundo. A partir de esa fecha, queda abrogada la Ley de Asistencia y Atención para la Prevención de la Violencia Intrafamiliar, publicada en el Periódico Oficial del Estado del 7 de enero de 1997 y derogadas todas las disposiciones que sean contrarias a la misma.

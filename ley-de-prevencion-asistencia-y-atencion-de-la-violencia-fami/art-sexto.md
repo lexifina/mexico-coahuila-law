@@ -1,0 +1,1 @@
+Artículo Sexto. La Procuraduría General de Justicia tendrá la obligación de instalar las Agencias Especializadas del Ministerio Público para la Atención de Víctimas de Violencia Familiar y Delitos Sexuales, en un plazo que no será mayor a los 30 días anteriores a la fecha en que entre en vigor esta Ley.

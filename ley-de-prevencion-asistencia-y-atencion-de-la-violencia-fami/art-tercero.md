@@ -1,0 +1,1 @@
+Artículo Tercero. El Consejo Estatal, la Junta Directiva y los Consejos Regionales a los que alude esta ley, deberán quedar instalados dentro de los treinta días siguientes a la fecha en que entre en vigor.

@@ -1,0 +1,1 @@
+Artículo Quinto. La Secretaría de Gobierno, por conducto de la Dirección del Registro Civil, dispondrá la instrumentación necesaria para el asiento registral de los hechos generadores de violencia familiar, con las características que dispone esta ley.
