@@ -7,7 +7,7 @@ TRANSITORIOS
 6º- En el presente período, el Congreso podrá hacer el nombramiento de los Magistrados que falten para integrar el Superior Tribunal de Justicia, sin previa proposición de los Ayuntamientos.
 7º- Esta Constitución será promulgada solemnemente el DIEZ Y NUEVE de Febrero del corriente año.
 Dado en la Ciudad de Saltillo, a los cinco días del mes de Febrero de mil novecientos diez y ocho, en el Salón de Sesiones del Poder Legislativo.
-F. L. Treviño,
+F. L. Treviño
 Presidente.- Diputado por el 15º. Distrito Electoral.
 Francisco Paz,
 Vice-Presidente.- Diputado por el 8º Distrito Electoral.
