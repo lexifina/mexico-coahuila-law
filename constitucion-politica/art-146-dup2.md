@@ -7,14 +7,17 @@ IV. Resolver las quejas que se presentaren contra los Jueces de Primera Instanci
 V. Conocer en única instancia de los procesos contra el Gobernador del Estado, los Diputados, los Magistrados del Supremo Tribunal, el Procurador de justicia y demás funcionarios que determine la Ley.
 VI. Dirimir las competencias que se susciten entre los Jueces de Primera Instancia del Estado o entre Jueces Locales de distintos distritos judiciales.
 VII. Conceder licencias con o sin goce de sueldo a los Magistrados y Jueces de Primera Instancia, siendo las primeras por causa justificada a juicio del Tribunal.
-VIII. Nombrar a los Jueces de Primera Instancia.
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 1939)
+VIII. Nombrar a los Jueces de Primera Instancia y a los Jueces Locales Letrados, designar el Distrito Judicial en que han de ejercer su encargo, cambiar la designación de Distrito Judicial cuando lo estime conveniente para la Administración de Justicia y aceptar las renuncias de los expresados Jueces.
 IX. Conocer de las recusaciones o excusas de los Magistrados que formen el Tribunal.
 X. Nombrar y remover al Secretario y demás empleados subalternos del Tribunal.
 XI. Formar su reglamento interior, pasándolo al Congreso para su aprobación.
-XII. Suspender hasta por un mes por causa justificada a los Jueces de Primera Instancia.
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 1939)
+XII. Suspender hasta por tres meses, por causa justificada, a los Jueces de Primera Instancia y a los Jueces Locales.
 XIII. Remitir al Ejecutivo y al Congreso, los informes que pidan sobre la Administración de justicia.
 XIV. Apoyar o contradecir las peticiones de indulto.
-XV. Ordenar visitas a los Juzgados de Primera Instancia, y de Cárceles.
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 1939)
+XV. Ordenar visitas de los Juzgados de Primera Instancia, de los Juzgados Locales y de Cárceles.
 XVI. Fijar los emolumentos que deban percibir los Magistrados Supernumerarios, cuando conozcan de asuntos del Tribunal.
 XVII. Conocer de los recursos de casación en negocios mercantiles.
 XVIII. Las demás que les confieran las leyes.

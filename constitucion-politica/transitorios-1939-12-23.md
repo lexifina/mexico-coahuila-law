@@ -1,0 +1,2 @@
+P.O. 23 DE DICIEMBRE DE 1939.
+UNICO.- A partir de la vigencia de la presente reforma, el Tribunal Superior de Justicia del Estado procederá a hacer los nombramientos de Jueces Locales Letrados que establezcan las Leyes, de manera que el período del funcionamiento de estos Jueces coincida con el de los de Primera Instancia, aunque por esta vez sea necesario para tal efecto, que se designe un período menor para los Jueces Locales Letrados.
