@@ -1,0 +1,5 @@
+P.O. 23 DE DICIEMBRE DE 1972.
+PRIMERO.- Estas reformas entrarán en vigor al día siguiente de su publicación en el Periódico Oficial del Estado, y como consecuencia de las mismas se procederá a modificar en lo conducente la Ley Orgánica del Poder Judicial.
+SEGUNDO.- Hasta en tanto se elija y tome posesión de su cargo el Magistrado Titular de la Cuarta Sala, el Supremo Tribunal de Justicia funcionará legalmente en la forma como actualmente está constituido.
+TERCERO.- Dentro de los diez días siguientes a la fecha en que entren en vigor las reformas a la Ley Orgánica del Poder Judicial, los Ayuntamientos deberán proponer ternas al Congreso del Estado para la elección del Magistrado Propietario y de los Magistrados Supernumerarios de la Cuarta Sala del Supremo Tribunal de Justicia del Estado.
+CUARTO.- El Magistrado Propietario y los Magistrados Supernumerarios de la Cuarta Sala del Tribunal Supremo de Justicia del Estado, durarán en su encargo a partir de la fecha de su toma de posesión, hasta el día 30 de noviembre de 1975.
