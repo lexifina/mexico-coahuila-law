@@ -1,5 +1,6 @@
 (ADICIONADO, P.O. 20 DE MARZO DE 2001)
 Artículo 158-T. Para fijar la distribución de las participaciones o aportaciones federales y estatales a los Municipios, el Congreso del Estado deberá tomar en cuenta, por lo menos, los criterios de población, marginación social, desarrollo económico, esfuerzo recaudatorio y eficiencia de los servicios públicos, a fin de que la distribución de los ingresos a los Municipios genere un desarrollo integral armónico, sustentable y equitativo en todas las regiones del Estado, bajo los principios de fidelidad federal y municipal.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
-CAPITULO I.
-Bases Fundamentales.
+TITULO SEPTIMO.
+(REFORMADA SU DENOMINACION, P.O. 27 DE ENERO DE 1984)
+CAPITULO UNICO.
+De las Responsabilidades de los Servidores Públicos Estatales y Municipales.

@@ -4,6 +4,9 @@ I. Será necesaria solicitud previa del Ayuntamiento respectivo, aprobada por cu
 II. La resolución del Congreso podrá ser impugnada en los términos del artículo 158 de esta Constitución.
 III. En el caso de que no exista la solicitud previa del Ayuntamiento, aprobada por cuando menos las dos terceras partes de sus integrantes, el Ejecutivo del Estado o el equivalente al veinte por ciento de los integrantes de los Ayuntamientos o Concejos Municipales, podrán impugnar por vía de controversia constitucional, si procede o no que el Gobierno Estatal asuma la función o servicio público municipal de que se trate, en los términos del artículo 158 de esta Constitución.
 IV. En todo caso, la resolución se basará en el interés público de garantizar el ejercicio o prestación continua y eficiente de la función o servicio público de que se trate. Para tal efecto, las partes en conflicto deberán ofrecer todas las pruebas necesarias para determinar la situación real que guarda la prestación del servicio o el ejercicio de la función; pero la autoridad que resuelva tiene, en cualquier momento, el derecho de recabar todas las pruebas necesarias para decidir lo conducente.
-(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
-SECCION II.
-El Ayuntamiento y el Concejo Municipal.
+(ADICIONADO CON LAS SECCIONES, APARTADOS Y ARTÍCULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
+CAPITULO II.
+El Gobierno Municipal.
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
+CAPITULO I.
+Bases Fundamentales.
