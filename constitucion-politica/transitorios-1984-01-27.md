@@ -1,0 +1,4 @@
+P.O. 27 DE ENERO DE 1984.
+PRIMERO:- Las presentes reformas y adiciones, una vez promulgadas, se publicarán en el Periódico Oficial del Gobierno del Estado y entrarán en vigor el día diecinueve de febrero de mil novecientos ochenta y cuatro.
+SEGUNDO:- El Congreso del Estado, cuando así se requiera, expedirá, reformará o adicionará las leyes orgánicas, reglamentarias y ordenamientos legales, para proveer a la exacta observancia y debido cumplimiento, de los artículos contenidos en estas reformas o adiciones, que creen o modifiquen estructuras de órganos de autoridades estatales o municipales; que establezcan nuevos procedimientos para su elección, designación o funcionamiento; y los que otorguen nuevas facultades, deberes u obligaciones.
+TERCERO:- Se derogan todas las disposiciones legales que se opongan a las presentes reformas y adiciones.
