@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE MARZO DE 2001)
+Artículo 158-L. El Congreso del Estado, por acuerdo de las dos terceras partes de sus integrantes y por causa grave que determine la ley, podrán suspender Ayuntamientos o, en su caso, Concejos Municipales, declarar que éstos han desaparecido y suspender o revocar el mandato a alguno de sus miembros, siempre y cuando, en todos estos casos, se les otorgue las garantías de audiencia y de legalidad.

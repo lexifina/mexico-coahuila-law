@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE MARZO DE 2001)
+Artículo 158-Ñ. No existirá autoridad intermedia entre el Gobierno del Estado y el Gobierno Municipal.
+Por autoridad intermedia se entiende toda entidad que interrumpa u obstaculice la comunicación directa que debe existir entre los Gobiernos Estatal y Municipal. Se considerará también autoridad intermedia aquella que, entre el Estado y el Municipio, asuma indebidamente alguna o algunas facultades propias del Ayuntamiento.
+No será autoridad intermedia aquella que asuma, conforme a las disposiciones aplicables, una función de auxilio y de colaboración que solicite o acepte el propio Ayuntamiento para el mejor desempeño de sus funciones, bajo los principios de fidelidad federal y municipal.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE MARZO DE 2001)
+Artículo 158-A. El Municipio Libre es la base fundamental para la organización territorial, política y administrativa del Estado.
+Los elementos que conforman el Municipio Libre son: su población, su territorio, la organización y el funcionamiento de sus órganos de gobierno y su hacienda. La ley establecerá las normas fundamentales para que cada Ayuntamiento reglamente los elementos de su Municipio, de conformidad con la Constitución Política de los Estados Unidos Mexicanos y esta Constitución.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE MARZO DE 2001)
+Artículo 158-D. El Municipalismo Cooperativo e Interdependiente se instituye en el régimen interior del Estado como la fórmula política, orgánica y funcional, para que los Gobiernos Estatal y Municipal actúen, bajo el principio de fidelidad municipal, de manera constructiva, corresponsable y armónicamente en el desempeño de sus funciones exclusivas, concurrentes o coincidentes.
