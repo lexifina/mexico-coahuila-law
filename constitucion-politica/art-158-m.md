@@ -8,6 +8,9 @@ V. El Concejo Municipal designado concluirá el período municipal correspondien
 VI. Si alguno de los miembros del Concejo Municipal dejare de desempeñar su cargo, será sustituido por su suplente o se procederá con arreglo a la ley.
 VII. En el caso de que un Concejo Municipal se ubique en el supuesto previsto en el artículo anterior, el Congreso del Estado procederá de nueva cuenta a constituir el Concejo Municipal para concluir el período respectivo de conformidad con este artículo.
 VIII. En todo caso, el Congreso del Estado deberá tomar las medidas necesarias para asegurar la gobernabilidad del Municipio mientras realiza la designación de los miembros del Concejo Municipal.
+(ADICIONADA CON LOS APARTADOS Y ARTICULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
+SECCION III.
+La Competencia Municipal.
 TITULO SEPTIMO.
 (REFORMADA SU DENOMINACION, P.O. 27 DE ENERO DE 1984)
 CAPITULO UNICO.
