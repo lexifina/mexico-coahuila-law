@@ -1,0 +1,7 @@
+P.O. 21 DE JUNIO DE 2005.
+PRIMERO. Este decreto entrará en vigor al día siguiente a su publicación, bajo las modalidades previstas en los artículos siguientes.
+SEGUNDO. En un término que no excederá de seis meses contados a partir de que entre en vigor este Decreto, el Poder Legislativo del Estado expedirá la Ley de Justicia administrativa que regulará la competencia, procedimientos, organización y atribuciones del Tribunal Administrativo.
+En dicho ordenamiento se establecerán las disposiciones relativas a los recursos presupuestales para la instalación del Tribunal Administrativo.
+TERCERO. Las impugnaciones, a través de las acciones de inconstitucionalidad a ordenamientos jurídicos vigentes, al momento de entrar en vigor este Decreto, se substanciarán y resolverán en los términos de lo previsto en el artículo Segundo Transitorio del Decreto de reforma constitucional, publicado el veinte de marzo del dos mil uno.
+CUARTO. Hasta en tanto el Congreso del Estado expida un ordenamiento legal para regular las figuras a que se refieren los artículos 154, fracción II, numerales 1 y 11, y 156 de este Decreto, el Pleno del Tribunal Superior de Justicia y el Consejo de la Judicatura, en el ámbito de sus respectivas atribuciones, emitirán los acuerdos generales en los plazos y bajo las modalidades que estimen convenientes conforme a esta Constitución.
+QUINTO. Se derogan todas las disposiciones legales y reglamentarias que contravengan este Decreto.
