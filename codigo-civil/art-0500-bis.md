@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 19 DE AGOSTO DE 2005)
+ARTÍCULO 500 BIS. El Sistema para el Desarrollo Integral de la Familia a través del Consejo Técnico de Adopciones, conocerá de las solicitudes de adopción que se presenten ante el propio organismo en relación con los menores que se encuentren institucionalizados y en aptitud legal de ser adoptados, así como de emitir opinión respecto de las adopciones promovidas ante el Poder Judicial sobre menores no institucionalizados.
+SUBSECCIÓN SEGUNDA
+DE LA ADOPCIÓN SEMIPLENA
