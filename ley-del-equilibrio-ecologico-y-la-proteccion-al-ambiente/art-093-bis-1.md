@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE DICIEMBRE DE 2006)
+ARTICULO 93 BIS 1.- La realización de dichas actividades en zonas urbanas, suelos cercanos a centros de población o áreas naturales protegidas bajo la jurisdicción y competencia del Estado o de los municipios, podrá negarse o suspenderse cuando, a juicio de la Secretaría, se ponga en serio peligro o en riesgo inminente el equilibrio ecológico o el ambiente de la localidad.
