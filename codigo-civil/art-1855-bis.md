@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE ENERO DE 2007)
+ARTÍCULO 1855 BIS.- Quien se encuentre en la situación prevista en el artículo 1079, tendrá acción y derecho para pedir, a quien fuera su pareja, en igualdad de supuestos y condiciones, la indemnización que se establece en los artículos 385-15 y 1895 de este código, una vez que haya cesado la vida en común por cualquier causa; acción que prescribirá en un año contado a partir de esa circunstancia.
