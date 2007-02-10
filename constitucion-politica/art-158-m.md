@@ -25,7 +25,6 @@ Cuando el Congreso del Estado se encuentre en receso, el Presidente de la Diputa
 (ADICIONADA CON LOS APARTADOS Y ARTICULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
 SECCION III.
 La Competencia Municipal.
-TITULO SEPTIMO.
-(REFORMADA SU DENOMINACION, P.O. 27 DE ENERO DE 1984)
-CAPITULO UNICO.
-De las Responsabilidades de los Servidores Públicos Estatales y Municipales.
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
+APARTADO PRIMERO.
+Bases Generales.
