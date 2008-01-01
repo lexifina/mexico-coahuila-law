@@ -1,0 +1,24 @@
+TRANSITORIOS
+PRIMERO. La presente Ley entrará en vigor el día 1º de enero de 2008.
+SEGUNDO. Se derogan todas las disposiciones que se opongan a la presente Ley.
+DADO en el Salón de Sesiones del Congreso del Estado, en la Ciudad de Saltillo, Coahuila, a los dieciocho días del mes de diciembre del año dos mil siete.
+DIPUTADO PRESIDENTE.
+ALFIO VEGA DE LA PEÑA.
+(RÚBRICA)
+DIPUTADA SECRETARIA.
+LETICIA RIVERA SOTO.
+(RÚBRICA)
+DIPUTADO SECRETARIO.
+JORGE ALBERTO GUAJARDO GARZA.
+(RÚBRICA)
+IMPRIMASE, COMUNÍQUESE Y OBSÉRVESE.
+Saltillo, Coahuila, 20 de Diciembre de 2007.
+EL GOBERNADOR DEL ESTADO
+PROFR. HUMBERTO MOREIRA VALDÉS
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+Lic. HOMERO RAMOS GLORIA
+(RÚBRICA)
+EL SECRETARIO DE FINANZAS
+LIC. JORGE JUAN TORRES LÓPEZ
+(RÚBRICA)
