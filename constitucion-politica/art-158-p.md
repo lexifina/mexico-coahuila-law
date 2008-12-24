@@ -6,12 +6,16 @@ II. El Congreso del Estado discutirá y aprobará las leyes de ingresos de los M
 En el caso de no aprobarse alguna de las leyes de ingresos, continuarán en vigor las del año inmediato anterior del municipio o municipios de que se trate, con las actualizaciones a que se refiere el tercer párrafo de la fracción XXXIII del artículo 67 de esta Constitución.
 (REFORMADA, P.O. 22 DE JUNIO DE 2007)
 III. El Congreso del Estado revisará y fiscalizará por conducto de la Auditoria Superior del Estado, las cuentas públicas de los Municipios, en los términos de las disposiciones aplicables. El Congreso del Estado en coordinación con los municipios garantizará la disposición de la información de la cuenta pública municipal a la comunidad en general, a través de instrumentos confiables, oportunos y transparentes;
-(REFORMADA, P.O. 29 DE JUNIO DE 2007)
+(ADICIONADA [N. DE E. REFORMADA], P.O. 23 DE DICIEMBRE DE 2008) (F. DE E., P.O. 10 DE ABRIL DE 2009)
 IV. Los presupuestos de egresos serán aprobados por los Ayuntamientos con base en sus ingresos disponibles y de acuerdo a la programación de sus actividades gubernamentales y administrativas, observando para tal efecto las disposiciones aplicables.
+(F. DE E., P.O. 10 DE ABRIL DE 2009)
 El Ayuntamiento deberá aprobar en el presupuesto de egresos del ejercicio las partidas necesarias para solventar las obligaciones incurridas en ejercicios anteriores y pagaderos en dicho ejercicio:
+(F. DE E., P.O. 10 DE ABRIL DE 2009)
 a) Que constituyan deuda pública del Ayuntamiento o de las entidades paramunicipales que cuenta con la garantía del Ayuntamiento o del Estado, conforme a lo autorizado por las leyes y los decretos correspondientes, y
+(F. DE E., P.O. 10 DE ABRIL DE 2009)
 b) Que se deriven de contratos para proyectos para prestación de servicios aprobados por el Ayuntamiento conforme a las leyes aplicables.
-El ejercicio presupuestal del Municipio deberá ajustarse a los principios de honestidad, legalidad, optimización de recursos, racionalidad e interés público y social.
+(F. DE E., P.O. 10 DE ABRIL DE 2009)
+El ejercicio presupuestal del Municipio deberá ajustarse a los principios de honestidad, legalidad, optimización de recursos, racionalidad e interés público y social. No se otorgarán remuneraciones, pagos o percepciones distintas a su ingreso establecido en el presupuesto de egresos al Presidente Municipal, Regidores y Síndicos, a los integrantes de los Concejos Municipales. La infracción hace responsable solidariamente, por su devolución, a la autoridad que ordene el pago de la percepción extraordinaria; al servidor público que lo ejecute y al que lo reciba, sin perjuicio de la responsabilidad establecida por la ley de la materia.
 V. El Ayuntamiento manejará prudentemente el patrimonio municipal conforme a la ley.
 La ley establecerá los casos en que se requiera el acuerdo de las dos terceras partes de los miembros de los Ayuntamientos para dictar resoluciones que afecten el patrimonio inmobiliario municipal o para celebrar actos o convenios que comprometan al Municipio por un plazo mayor al período del Ayuntamiento. El convenio siempre será por un tiempo determinado y con un objeto preciso.
 En ambos casos, el Congreso del Estado podrá invalidar las resoluciones de los Ayuntamientos cuando contravengan el interés público y social. La ley de la materia establecerá el procedimiento a que deberá sujetarse la invalidez de las resoluciones de los Ayuntamientos.
