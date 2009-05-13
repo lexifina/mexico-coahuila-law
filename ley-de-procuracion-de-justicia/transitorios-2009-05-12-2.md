@@ -1,0 +1,20 @@
+P.O. 12 DE MAYO DE 2009.
+DECRETO NO. 5, POR EL QUE SE EMITE LA LEY ORGANICA DE LA FISCALIA GENERAL DEL ESTADO DE COAHUILA DE ZARAGOZA.
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Todas las disposiciones, menciones y referencias que se hagan en las leyes y reglamentos nacionales, estatales y municipales a la Procuraduría General de Justicia del Estado y al Procurador General de Justicia del Estado; a la Secretaría de Seguridad Pública del Estado y al Secretario de Seguridad Pública del Estado, se entenderán hechas a la Fiscalía General y al Fiscal General.
+TERCERO. Todas las disposiciones, menciones y referencias que se hagan en las leyes y reglamentos nacionales, estatales y municipales a las subprocuradurías y a los subprocuradores, se entenderán hechas a las fiscalías especializadas y a los fiscales especializados, conforme a las siguientes denominaciones:
+Subprocurador Ministerial: Fiscal Ministerial, de Investigación y Operación Policial.
+Subprocurador de Control de Procesos y Legalidad: Fiscal de Control de Procesos y Legalidad.
+Subprocurador Jurídico de Profesionalización y de Proyectos: Fiscal Jurídico, de Profesionalización y de Proyectos.
+CUARTO. Se derogan de la Ley de Procuración de Justicia y de los reglamentos emanados de ella, las disposiciones que sean contrarias a las normas establecidas en la Ley Orgánica de la Fiscalía General, debiéndose de observan las siguientes reglas:
+I. Se faculta al Fiscal General para que haga las adecuaciones administrativas necesarias, respecto de los puestos y funciones que deberán desempeñar los servidores públicos en la Fiscalía General.
+II. Los recursos materiales y financieros de la Procuraduría General de Justicia del Estado de Coahuila, pasan a formar parte de la Fiscalía General, sin necesidad de ningún procedimiento posterior.
+QUINTO. Se derogan de la Ley de Seguridad Pública del Estado y de los reglamentos emanados de ella, las disposiciones que sean contrarias a las normas establecidas en la Ley Orgánica de la Fiscalía General, debiéndose de observan las siguientes reglas:
+I. Se autoriza al Fiscal General del Estado, para que determine qué personal de confianza de la Secretaría de Seguridad Pública deberá integrarse a la Fiscalía General y la asignación de sus funciones, de acuerdo a las necesidades y posibilidades de la Institución.
+II. Los recursos materiales y financieros de la Secretaría de Seguridad Pública del Estado de Coahuila, pasan a formar parte de la Fiscalía General, sin necesidad de ningún procedimiento posterior.
+III. El Consejo Consultivo Estatal de Seguridad Pública, cesa en sus funciones.
+SEXTO. Todos los procedimientos y asuntos pendientes de la Procuraduría General de Justicia y de la Secretaría de Seguridad Pública del Estado, serán tramitados y resueltos por la Fiscalía General de conformidad con las leyes y reglamentos vigentes en el tiempo de la comisión de los actos y los hechos.
+SÉPTIMO. Los nombramientos del Fiscal General y de los fiscales especializados: Ministerial, de Investigación y Operación Policial; de Control de Procesos y Legalidad; Jurídico, de Profesionalización y de Proyectos; y de Inteligencia y Políticas Públicas se entenderán extendidos por el período constitucional de ocho años, por lo tanto sus períodos respectivos se contarán a partir de la fecha en que rindan protesta.
+OCTAVO. El Reglamento Interior de la Fiscalía General del Estado se expedirá en un plazo no mayor a seis meses a la publicación de este Decreto. Hasta en tanto no entre en vigor el nuevo Reglamento y la demás normatividad interna, seguirán vigentes las normas reglamentarias y de cualquier otro nivel que tenía la extinta Procuraduría General de Justicia del Estado siempre que no se opongan a la presente Ley
+NOVENO. Todas las disposiciones contenidas en esta Ley que se relacionen con el nuevo sistema penal acusatorio, tendrán aplicación una vez que éste se implemente.
+DÉCIMO. Se derogan todas las disposiciones que se opongan al presente Decreto.
