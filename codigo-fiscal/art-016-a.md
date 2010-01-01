@@ -1,0 +1,3 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, P.O. 11 DE DICIEMBRE DE 2009)
+ARTICULO 16-A. Cuando los contribuyentes remitan un documento digital a las autoridades fiscales, recibirán el acuse de recibo que contenga la Clave de Autorización Estatal. La Clave de Autorización Estatal es el mensaje electrónico que acredita que un documento digital fue recibido por la autoridad correspondiente, y estará sujeto a la misma regulación aplicable al uso de la Clave de Identificación Estatal. En este caso, la Clave de Autorización Estatal se presumirá, salvo prueba en contrario, que el documento digital fue recibido en la hora y fecha que se consignen en el acuse de recibo mencionado.
