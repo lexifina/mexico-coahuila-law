@@ -1,0 +1,2 @@
+ARTÍCULO TERCERO.- El reglamento a que se refiere esta ley se expedirá en un período que no excederá de 180 días naturales, contado a partir de que entre en vigor la presente ley.
+El reglamento, deberá contener los procedimientos por los cuales se hagan uso de las situaciones de excepción en caso de emergencia o desastre que contiene el artículo 18 de la ley, asimismo la forma y términos para acceder a las indemnizaciones que correspondan.

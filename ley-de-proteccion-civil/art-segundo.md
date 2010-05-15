@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Protección Civil para el Estado de Coahuila de Zaragoza, publicada en el Periódico Oficial del Gobierno del Estado, el 11 de junio de 1996 y quedan sin efecto las disposiciones que se opongan a la presente.
