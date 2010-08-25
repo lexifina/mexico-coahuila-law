@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 24 DE AGOSTO DE 2010)
+Artículo 87 bis. La Secretaría de Salud podrá autorizar con fines preventivos, terapéuticos, rehabilitatorios o de investigación, el empleo en seres humanos de medicamentos o materiales respecto de los cuales aún no se tenga evidencia científica suficiente de su eficacia terapéutica o se pretenda la modificación de las indicaciones terapéuticas de productos ya conocidos.
+Al efecto, los interesados deberán presentar la documentación siguiente:
+I. Solicitud por escrito;
+II. Información básica farmacológica y preclínica del producto;
+III. Estudios previos de investigación clínica, cuando los hubiere;
+IV. Protocolo de investigación, y
+V. Carta de aceptación de la institución donde se efectúe la investigación y de la persona responsable de la misma.

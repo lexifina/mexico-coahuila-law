@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE AGOSTO DE 2010)
+Artículo 96 bis. La Secretaría de Salud diseñará programas para promover el consumo de alimentos de alta calidad nutricional en las instituciones de educación preescolar, primaria y secundaria dependientes de la Administración Pública del Estado e incorporados a las mismas.
+Asimismo, en coordinación con la Secretaría de Educación y Cultura y la participación de los sectores social y privado, promoverá que los alimentos, productos y bebidas que se ofrezcan en las en las instituciones de educación señaladas en este artículo, contengan bajo contenido de sodio, grasa, colesterol, calorías, azúcar, nulo contenido de gluten y alto contenido de fibra.

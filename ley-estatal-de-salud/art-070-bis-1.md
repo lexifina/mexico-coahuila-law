@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE AGOSTO DE 2010)
+Artículo 70 bis 1. La Ley General de Salud y los acuerdos de coordinación que al efecto suscriba el Estado con la Federación, establecerán la competencia del Gobierno del Estado en la ejecución de las acciones de protección social en salud, así como los conceptos de gasto, el destino de los recursos, los indicadores de seguimiento a la operación y los términos de la evaluación integral del Sistema.

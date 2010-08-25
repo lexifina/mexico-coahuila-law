@@ -1,0 +1,6 @@
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 24 DE AGOSTO DE 2010) (F. DE E., P.O. 8 DE OCTUBRE DE 2010)
+CAPÍTULO VIII
+DE LA PROTECCIÓN SOCIAL EN SALUD
+(ADICIONADO, P.O. 24 DE AGOSTO DE 2010)
+Artículo 70 bis. Todos los mexicanos tienen derecho a ser incorporados al Sistema de Protección Social en Salud de conformidad con el artículo 4° de la Constitución Política de los Estados Unidos Mexicanos, sin importar su condición social.
+La protección social en salud en términos de la Ley General de Salud, es un mecanismo por el cual el Estado garantizará el acceso efectivo, oportuno, de calidad, sin desembolso al momento de su utilización y sin discriminación, a los servicios médico-quirúrgicos, farmacéuticos y hospitalarios que satisfagan de manera integral las necesidades de salud, mediante la combinación de intervenciones de promoción de la misma, prevención, diagnóstico, tratamiento y de rehabilitación, seleccionadas en forma prioritaria según criterios de seguridad, eficacia, costo, efectividad, adherencia a normas éticas profesionales y aceptabilidad social. Como mínimo se deberán contemplar los servicios de consulta externa en el primer nivel de atención, así como de consulta externa y hospitalización para las especialidades básicas de: medicina interna, cirugía general, gineco-obstetricia, pediatría y geriatría, en el segundo nivel de atención.
