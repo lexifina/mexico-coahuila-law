@@ -1,0 +1,1 @@
+ARTICULO 2°.- Continuarán en el ejercicio de sus funciones los miembros del Consejo de Administración por el período para el cual fueron designados y asumirá su cargo el representante de la Universidad de Coahuila, dentro de los diez días siguientes a la vigencia de esta Ley.

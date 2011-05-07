@@ -1,0 +1,1 @@
+ARTICULO 1°.- Esta Ley entrará en vigor a los treinta días de su publicación, dentro de cuyo término en su caso las entidades y organismos sociales afectos a este Ordenamiento, expondrán lo que a sus derechos convenga por lo que se refiere a las asignaciones constitutivas del patrimonio del Seguro de los Trabajadores de la Educación.
