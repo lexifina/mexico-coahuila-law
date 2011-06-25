@@ -1,0 +1,8 @@
+Artículo Segundo. A partir del inicio de vigencia de la Ley, la Secretaría de Desarrollo Social y Humano deberá:
+I. Conformar el Consejo dentro de los treinta días posteriores a la entrada en vigor de la Ley, a efecto de que ésta expida la convocatoria para la integración del Grupo Técnico Consultivo, el que deberá instalarse a más tardar treinta días posteriores;
+II. Emitir los lineamientos para la administración del Registro, dentro de noventa días posteriores a su conformación, una vez lo cual, deberá iniciar su operación dentro de treinta días.
+El Registro, se conformará a partir del Registro Estatal de Organizaciones de la Sociedad, integrado en términos de la Ley de Desarrollo Social y Humano para el Estado y los Municipios de Guanajuato, conformado antes de la vigencia de la presente Ley, que regula el Reglamento Interior de la Secretaría de Desarrollo Social y Humano en su artículo 4 fracción III inciso d) y artículo 51 fracción III.
+Iniciada la operación del Registro, las organizaciones inscritas antes de su vigencia, en los distintos padrones de las dependencias y entidades, dispondrán de un plazo de noventa días para actualizar su inscripción o efectuar su anotación en el Registro; durante dicho periodo podrán mantener y participar en los recursos y fondos públicos que correspondan.
+La Secretaría de Desarrollo Social y Humano dará una amplia difusión de la Ley con énfasis en el Registro y en las obligaciones de las Organizaciones; y
+III. Proponer al Ejecutivo del Estado, el Reglamento de la Ley, en un término de 120 días posteriores a la entrada en vigor de la Ley.
+Integración del Grupo Técnico Consultivo
