@@ -1,0 +1,3 @@
+P.O. 27 DE DICIEMBRE DE 2011.
+PRIMERO.- La presente Iniciativa entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Las dependencias responsables de la materia, deberán revisar, y en su caso actualizar, sus programas y reglamentos relativos a la protección civil de los menores de edad en los centros a que se refiere el artículo 17 en su párrafo tercero, atendiendo a las más altas exigencias de los mismos, procurando tomar en cuenta las consideraciones contenidas en la materia de protección civil, en el Dictamen Final del Expediente 1/2009 de la Facultad de Investigación, emitido por el Pleno de la Suprema Corte de Justicia de la Nación.
