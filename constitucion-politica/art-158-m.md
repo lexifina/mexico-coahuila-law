@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 9 DE FEBRERO DE 2007)
+(REFORMADO PRIMER PÁRRAFO, P.O. 9 DE FEBRERO DE 2007)
 Artículo 158-M. Cuando por cualquier circunstancia no se haya verificado la elección de munícipes antes del día señalado por la ley para la renovación del Ayuntamiento o cuando hubiere sido declarada nula, así como en el caso de declararse desaparecido un Ayuntamiento o un Concejo Municipal por renuncia o falta absoluta de la mayoría de sus miembros, si conforme a la ley no procede que entren en funciones los suplentes ni que se celebren nuevas elecciones, el Congreso del Estado constituirá un Concejo Municipal, conforme a las bases siguientes:
 (ADICIONADA, P.O. 20 DE MARZO DE 2001)
 I. El Concejo Municipal se constituirá de entre los vecinos del Municipio de que se trate y estará integrado por un concejal presidente, un síndico y cinco concejales, propietarios y suplentes, que serán designados por insaculación por el Congreso del Estado.
@@ -22,9 +22,9 @@ Para cumplir con lo anteriormente señalado, al tenerse formal conocimiento de l
 El Concejo Provisional estará integrado por un Concejal Presidente y dos Concejales y se encargará en forma transitoria del gobierno y la administración del municipio, con el auxilio de los servidores públicos de las dependencias y organismos de la administración pública municipal, a partir de la fecha en que se formalice su nombramiento y hasta que asuma sus funciones el Concejo Municipal que nombre el Congreso del Estado, conforme a lo que se establece en este artículo.
 (ADICIONADO, P.O. 9 DE FEBRERO DE 2007)
 Cuando el Congreso del Estado se encuentre en receso, el Presidente de la Diputación Permanente de manera inmediata hará la designación del Concejo Provisional y de igual manera convocará al Pleno de la Legislatura, para que haga la designación del Concejo Municipal en un plazo no mayor de quince días.
-(ADICIONADA CON LOS APARTADOS Y ARTICULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
+(ADICIONADA CON LOS APARTADOS Y ARTÍCULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
 SECCION III.
 La Competencia Municipal.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 20 DE MARZO DE 2001)
 APARTADO PRIMERO.
 Bases Generales.

@@ -7,6 +7,6 @@ III. Si se trata de la creación de un nuevo Municipio deberán, por lo menos, s
 2. Comprobar que se cuenta con los recursos suficientes para crear la infraestructura administrativa necesaria; proveer a su sostenimiento, ejercer las funciones que le son propias y prestar los servicios públicos municipales que requiera la comunidad.
 3. Contar con la conformidad del Ayuntamiento o Ayuntamientos de los Municipios afectados en su territorio.
 IV. Podrá crearse un nuevo Municipio mediante fusión o división de los existentes cuando así lo exija el interés público.
-(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
-SECCION II.
-El Ayuntamiento y el Concejo Municipal.
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 20 DE MARZO DE 2001)
+SECCIÓN II.
+El Ayuntamiento y el Concejo Municipal
