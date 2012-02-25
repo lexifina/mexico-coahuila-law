@@ -1,0 +1,3 @@
+P.O. 24 DE FEBRERO DE 2012.
+PRIMERO.- La presente reforma entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Coahuila de Zaragoza.
+SEGUNDO.- El Registro Civil, contará con un plazo de 60 días a partir de la entrada en vigor del presente decreto para crear y operar el Registro Estatal de Deudores Alimentarios Morosos. Una vez que entre en funciones deberá dar trámite inmediato a las resoluciones judiciales que se hubieren efectuado durante el periodo existente entre la entrada en vigor de este decreto y la creación del Registro Estatal de Deudores Alimentarios Morosos.
