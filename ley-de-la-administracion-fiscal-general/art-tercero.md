@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Las facultades y obligaciones a que se refiere este decreto, que en otras leyes, reglamentos, acuerdos, convenios y demás ordenamientos jurídicos federales, estatales o municipales se atribuyan al Servicio de Administración Tributaria del Estado de Coahuila en materia fiscal, se entenderán conferidas a la Administración Fiscal General.

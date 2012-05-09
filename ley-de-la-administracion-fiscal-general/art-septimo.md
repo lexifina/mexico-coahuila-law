@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- Se abroga la Ley que crea el Servicio de Administración Tributaria del Estado de Coahuila, contenida en el Decreto No. 243 publicado en el Periódico Oficial del Gobierno del Estado en fecha 23 de abril de 2010.

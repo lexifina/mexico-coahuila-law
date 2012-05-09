@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- El Ejecutivo del Estado deberá emitir el reglamento interior de la Administración Fiscal General del Estado dentro de los sesenta días siguientes a la publicación del presente decreto.

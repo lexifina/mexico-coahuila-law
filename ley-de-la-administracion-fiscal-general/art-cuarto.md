@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Los asuntos en materia fiscal que actualmente se encuentren en trámite ante el Servicio de Administración Tributaria del Estado de Coahuila, deberán concluirse ante la Administración Fiscal General en el ámbito de su competencia, lo anterior previa notificación que se realice al contribuyente del cambio de autoridad.
