@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, P.O. 11 DE DICIEMBRE DE 2009)
 ARTICULO 19-A. Las Autoridades Fiscales podrán autorizar que las promociones se realicen mediante documento digital y enviarse por los medios electrónicos a las direcciones electrónicas que apruebe dicha dependencia. Para tal efecto, emitirá las reglas de carácter general que faciliten su cumplimiento.
 Los documentos digitales deberán tener por lo menos los siguientes requisitos:

@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, P.O. 11 DE DICIEMBRE DE 2009)
 ARTICULO 16-C. El titular de la Clave de Identificación Estatal tramitada ante las autoridades fiscales competentes, tendrá las siguientes obligaciones:
 I. Actuar con diligencia y establecer los medios razonables para evitar la utilización no autorizada de la Clave de Identificación Estatal.
