@@ -1,0 +1,11 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2012)
+ARTÍCULO 66-A.- El procedimiento de adjudicación directa, se sujetará a lo siguiente:
+I. La dependencia o entidad deberá solicitar cotizaciones por escrito a por lo menos tres proveedores que cuenten con registro vigente en el Padrón de Proveedores, a excepción de las contrataciones que se lleven a cabo en los casos previstos en los supuestos de las fracciones I, II, III, V, VI, XII, XIV, XVI, XVIII, XIX y XXIII del artículo 64 de la presente Ley, en cuyo caso el proceso puede llevarse a cabo con solo un proveedor;
+II. La dependencia o entidad deberá entregar los documentos y la información que permita la participación de los proveedores en igualdad de condiciones, la preparación de sus cotizaciones y el cumplimiento de los requisitos que resulten aplicables en los términos del artículo 52 de la presente Ley;
+III. La solicitud de cotización se formulará a las personas físicas y morales que tengan capacidad legal, técnica y económica para cumplir con el contrato o pedido que en su caso se les asigne;
+IV. Para la dependencia o entidad será opcional celebrar una junta de aclaraciones para proporcionar mayor información o aclarar las dudas de los participantes;
+V. Las cotizaciones y demás documentación que haya solicitado la dependencia o entidad, podrán recibirse a través del servicio postal o de mensajería, por medios remotos de comunicación electrónica o en el domicilio de la dependencia o entidad solicitante;
+VI. La dependencia o entidad deberá elaborar cuadros técnicos y económicos comparativos de las cotizaciones recibidas, donde se precise el resultado de la evaluación realizada;
+VII. La dependencia o entidad podrá asignar con solo una propuesta económica solvente el contrato o pedido respectivo, previa comprobación de que los precios propuestos resultan aceptables de acuerdo a los precios existentes en el mercado;
+VIII. La dependencia o entidad deberá formular el contrato o pedido respectivo, de conformidad con sus políticas, bases y lineamientos, mismo que debe reunir los requisitos mínimos del artículo 68 de la presente Ley, y
+IX. Las garantías son exigibles en los términos previstos en los artículos 71 y 72 del presente ordenamiento legal.
