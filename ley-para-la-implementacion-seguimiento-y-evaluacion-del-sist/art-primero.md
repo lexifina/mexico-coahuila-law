@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO.- Esta ley entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado de Coahuila de Zaragoza y concluirá su vigencia una vez que se determine que la funcionalidad del Sistema es acorde a la normatividad expedida de conformidad en la presente ley.

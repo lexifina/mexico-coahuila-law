@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga el Decreto por el que se crea el Consejo de Coordinación para la Implementación del Sistema de Justicia Penal en el Estado de Coahuila de Zaragoza, publicado en el Periódico Oficial del Gobierno del Estado 09 de marzo de 2012, y todas las disposiciones que se opongan al presente Decreto.
