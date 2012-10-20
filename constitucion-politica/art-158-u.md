@@ -26,12 +26,15 @@ El Congreso del Estado podrá crear entidades paramunicipales sólo a iniciativa
 8. Organizar cursos, seminarios y programas de educación y capacitación continua tendientes a eficientar el cumplimiento de las funciones de los integrantes del Ayuntamiento y demás servidores públicos municipales.
 III. En materia de desarrollo urbano y obra pública:
 1. Los Municipios, en los términos de las leyes federales y estatales relativas, estarán facultados para:
-a) Formular, aprobar y administrar la zonificación y planes de desarrollo urbano municipal;
+(REFORMADO, P.O. 19 DE OCTUBRE DE 2012)
+a) Formular, aprobar y administrar la zonificación y planes de desarrollo urbano municipal. Los Planes de Desarrollo Urbano Municipal deberán establecer la prohibición de usos de suelo para casinos, centros de apuestas, salas de sorteos, casas de juego y similares, cualquiera que sea su denominación, para centros donde se presentan espectáculos con personas desnudas o semidesnudas y, para establecimientos donde se comercializan vehículos de procedencia extranjera sin acreditar su legal estancia en el Estado;
 b) Participar en la creación y administración de las reservas territoriales municipales;
 c) Participar en la formulación de planes de desarrollo regional, los cuales deberán estar en concordancia con los planes generales de la materia. Cuando el Estado elabore proyectos de desarrollo regional, en estos se deberá asegurar la participación de los Municipios;
-d) Autorizar, controlar y vigilar la utilización del suelo en el ámbito de su competencia, en sus respectivas jurisdicciones territoriales;
+(REFORMADO, P.O. 19 DE OCTUBRE DE 2012)
+d) Autorizar, controlar y vigilar la utilización del suelo en el ámbito de su competencia, en sus respectivas jurisdicciones territoriales. No estará permitido en el Estado el uso de suelo para casinos, centros de apuestas, salas de sorteos, casas de juego y similares, cualquiera que sea su denominación, para centros donde se presentan espectáculos con personas desnudas o semidesnudas y, para establecimientos donde se comercializan vehículos de procedencia extranjera sin acreditar su legal estancia en el Estado;
 e) Intervenir en la regularización de la tenencia de la tierra urbana;
-f) Otorgar licencias y permisos para construcciones;
+(REFORMADO, P.O. 19 DE OCTUBRE DE 2012)
+f) Otorgar licencias y permisos para construcciones. No estarán permitidos en el Estado los permisos o licencias de construcción para casinos, centros de apuestas, salas de sorteos, casas de juego y similares, cualquiera que sea su denominación, para centros donde se presentan espectáculos con personas desnudas o semidesnudas y, para establecimientos donde se comercializan vehículos de procedencia extranjera sin acreditar su legal estancia en el Estado;
 g) Participar en la creación y administración de zonas de reservas ecológicas y en la elaboración y aplicación de programas de ordenamiento en esta materia;
 h) Intervenir en la formulación y aplicación de programas de transporte público de pasajeros cuando aquellos afecten el ámbito territorial de los Municipios;
 i) Celebrar convenios para la administración y custodia de las zonas federales;
