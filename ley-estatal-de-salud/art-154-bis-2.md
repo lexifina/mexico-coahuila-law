@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 19 DE OCTUBRE DE 2012)
+Artículo 154 bis 2. En materia de prevención, la Secretaría desarrollará un modelo de intervención temprana que considere acciones de prevención y promoción de una vida saludable, hasta el tratamiento ambulatorio de calidad de la farmacodependencia, y contemple:
+I. Desarrollar campañas de educación para prevención de adicciones que permitan la producción y difusión de mensajes de alto impacto social acerca de los daños y riesgos de la farmacodependencia, dirigidos especialmente hacia los sectores más vulnerables, a través de los centros de educación básica;
+II. Coordinar y promover con los sectores público, privado y social, las acciones para prevenir la farmacodependencia, con base en la información y en el desarrollo de habilidades para proteger, promover, restaurar, cuidar la salud individual, familiar, laboral, escolar y colectiva;
+III. Proporcionar atención integral a grupos de alto riesgo, y
+IV. Realizar las demás acciones de prevención necesarias con base en la percepción de riesgo de consumo de sustancias psicoactivas en general; las características de los individuos; los patrones de uso y consumo; los problemas asociados a estas sustancias; así como los aspectos culturales y las tradiciones de los distintos grupos sociales.
+La información recibida por la autoridad sanitaria correspondiente a los farmacodependientes o consumidores con propósitos de orientación médica o de prevención, no deberá hacerse pública pero podrá usarse, sin señalar identidades, para fines estadísticos.

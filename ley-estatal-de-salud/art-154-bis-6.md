@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 19 DE OCTUBRE DE 2012)
+Artículo 154 bis 6. La Secretaría de Seguridad Pública y la Procuraduría General de Justicia del Estado, así como las autoridades municipales competentes participarán en la prevención y combate a las actividades de posesión, comercio o suministro de estupefacientes y psicotrópicos cuando dichas actividades se realicen en lugares públicos, y actuarán conforme a las atribuciones que les otorgan las disposiciones aplicables.
+La Secretaría de Salud del Estado, en coordinación con las autoridades estatales de Seguridad Pública, Procuración de Justicia y Educación y Cultura realizarán (sic) programas y campañas permanentes para prevenir el consumo de substancias con efectos psicotrópicos.
