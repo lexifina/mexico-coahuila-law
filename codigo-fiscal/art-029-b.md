@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2012)
+ARTÍCULO 29-B.- Las autoridades fiscales del Estado, cuando se encuentren en el ejercicio de sus facultades de comprobación previstas en este Código, respecto de contribuciones estatales, están facultadas para exigir a los contribuyentes la exhibición de la contabilidad, registros contables y documentos, incluidos los registros que el contribuyente esté obligado a llevar para otras contribuciones federales, estatales o municipales, así como la información necesaria para demostrar el cumplimiento de sus obligaciones tributarias, de conformidad con la legislación aplicable.

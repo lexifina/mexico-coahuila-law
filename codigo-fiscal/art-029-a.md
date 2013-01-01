@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2012)
+ARTÍCULO 29-A.- Los sujetos obligados al pago del (sic) impuestos estatales, están obligados a llevar contabilidad en los términos y con las formalidades establecidas en este Código y deberá considerar como parte de su contabilidad los registros contables que estén obligados a llevar para efectos de otras contribuciones federales o municipales; así como las declaraciones de impuestos e informativas y copias de los documentos que se desprendan de estos registros contables a fin de estar en posibilidad de comprobar el cumplimiento de sus obligaciones en materia de contribuciones estatales.
