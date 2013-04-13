@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE ABRIL DE 2013)
+ARTICULO 65 BIS.- La autoridad educativa del estado pondrá a consideración y, en su caso, autorización de la autoridad educativa federal, la aplicación dentro del plan de estudios, contenidos que permitan que los educandos adquieran mayor sensibilidad en los temas relacionados con el desarrollo en los ideales de justicia social, tolerancia, libertad e igualdad, así como el estudio de los derechos humanos contemplados en la Constitución Política de los Estados Unidos Mexicanos.

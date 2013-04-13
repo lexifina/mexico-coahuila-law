@@ -1,0 +1,15 @@
+(ADICIONADO, P.O. 12 DE ABRIL DE 2013)
+Artículo 173 Bis.- Toda persona tiene derecho a la prestación de servicios médicos públicos o privados, obteniendo una atención eficiente, oportuna y de calidad, para ello, el estado promoverá la existencia de mecanismos que protejan y garanticen el derecho a la salud así como el libre ejercicio de la medicina en la entidad.
+Sin perjuicio de la competencia de las instancias jurisdiccionales y de las facultades que tiene la Comisión de Derechos Humanos del Estado de Coahuila en la protección del derecho a la salud, se constituye a la Comisión Coahuilense de Conciliación y Arbitraje Médico como un organismo público autónomo, dotado de personalidad jurídica y patrimonio propio, con el objeto de contribuir en el ámbito estatal, a mejorar la calidad en la prestación de los servicios médicos y resolver en forma imparcial los conflictos o diferencias suscitadas entre los usuarios y prestadores de servicios, con motivo de una atención médica.
+La Comisión Coahuilense de Conciliación y Arbitraje Médico se constituirá de acuerdo a las bases siguientes:
+I. Será un organismo público autónomo, independiente en sus resoluciones, acuerdos, laudos, recomendaciones y dictámenes, así como en las demás funciones previstas en su marco legal;
+II. Conocerá de las quejas médicas que se susciten con motivo de una mala práctica en la atención médica o de la negativa u omisión en la prestación de esta, ofreciendo a los usuarios y prestadores de servicios médicos resolver sus conflictos a través de la conciliación y el arbitraje médico en los términos que establezca la ley de la materia;
+III. Será competente para promover las acciones de carácter preventivo, que permitan elevar la calidad en la atención de los servicios;
+IV. Contará con autonomía política, jurídica, administrativa, presupuestal, patrimonial y financiera, en los términos que establezca la ley;
+V. Su actuación se regirá por los principios de legalidad, certeza, imparcialidad, equidad, objetividad, economía procesal, independencia, reserva y confidencialidad;
+VI. Los procedimientos, serán gratuitos, sencillos y ágiles;
+VII. Estará integrada por un Consejo General que será el órgano superior de gobierno, una Presidencia, las Subcomisiones, un órgano de control y demás unidades administrativas y personal necesario para su operación;
+VIII. Los integrantes del Consejo General serán designados por el voto de cuando menos las dos terceras partes de los Diputados presentes en el Congreso del Estado, en los términos y conforme al procedimiento que disponga la ley;
+IX. La ley determinará los requisitos para ser Presidente, así como consejero de la Comisión Coahuilense de Conciliación y Arbitraje Médico;
+X. La Comisión Coahuilense de Conciliación y Arbitraje Médico podrá presentar iniciativas de leyes o decretos al Congreso del Estado en materia de su competencia en los términos de los artículos 59 y 60 de esta Constitución. En este caso la iniciativa se presentará por conducto del presidente, previo acuerdo del Consejo General;
+XI. Las demás atribuciones que establezca la ley.
