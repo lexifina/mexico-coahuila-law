@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 6 DE JULIO DE 2012)
+(ADICIONADO, P.O. 6 DE JULIO DE 2012) (REPUBLICADO, P.O. 19 DE ABRIL DE 2013)
 ARTÍCULO 66-A.- El procedimiento de adjudicación directa, se sujetará a lo siguiente:
 I. La dependencia o entidad deberá solicitar cotizaciones por escrito a por lo menos tres proveedores que cuenten con registro vigente en el Padrón de Proveedores, a excepción de las contrataciones que se lleven a cabo en los casos previstos en los supuestos de las fracciones I, II, III, V, VI, XII, XIV, XVI, XVIII, XIX y XXIII del artículo 64 de la presente Ley, en cuyo caso el proceso puede llevarse a cabo con solo un proveedor;
 II. La dependencia o entidad deberá entregar los documentos y la información que permita la participación de los proveedores en igualdad de condiciones, la preparación de sus cotizaciones y el cumplimiento de los requisitos que resulten aplicables en los términos del artículo 52 de la presente Ley;

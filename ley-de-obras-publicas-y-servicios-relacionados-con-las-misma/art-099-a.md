@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 6 DE JULIO DE 2012)
+(ADICIONADO, P.O. 6 DE JULIO DE 2012) (REPUBLICADO, P.O. 19 DE ABRIL DE 2013)
 Artículo 99-A.- En el procedimiento para la aplicación de sanciones a que se refiere este capítulo, se observarán las siguientes reglas:
 I. Se comunicarán por escrito al presunto infractor los hechos constitutivos de la infracción, notificándole para que dentro del término de diez días hábiles, exponga lo que a su derecho convenga y aporte las pruebas que estime pertinentes;
 II. Transcurrido el término a que se refiere la fracción anterior, se resolverá considerando los argumentos y pruebas que se hubieren hecho valer, que serán apreciados libremente por el resolutor;

@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 6 DE JULIO DE 2012)
+(ADICIONADO, P.O. 6 DE JULIO DE 2012) (REPUBLICADO, P.O. 19 DE ABRIL DE 2013)
 Artículo 43-A.- El procedimiento de adjudicación directa, se sujetará a lo siguiente:
 I. La dependencia o entidad deberá solicitar cotizaciones por escrito a por lo menos tres contratistas que cuenten con registro vigente en el Padrón de Contratistas, a excepción de las contrataciones que se lleven a cabo en los casos previstos en los supuestos de las fracciones II, IV, VI, X y XI, del artículo 41 de la presente Ley, en cuyo caso el proceso podrá llevarse a cabo con solo un contratista.
 II. La dependencia o entidad deberá entregar los documentos y la información que permita la participación de los contratistas en igualdad de condiciones, la preparación de sus cotizaciones y el cumplimiento de los requisitos que resulten aplicables en los términos del artículo 31 de la presente Ley.
