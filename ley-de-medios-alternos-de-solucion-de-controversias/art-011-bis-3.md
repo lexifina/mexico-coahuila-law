@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE MAYO DE 2013)
+Artículo 11 Bis 3. Los medios alternos en materia de justicia para adolescentes. En materia de justicia para adolescentes, sólo procederán los medios alternos en aquellos hechos que la Ley señale como delito que no ameriten medidas de internamiento de conformidad con la Ley de Justicia para Adolescentes del Estado de Coahuila de Zaragoza. Se exceptúan de lo anterior los delitos de carácter sexual, los cometidos en perjuicio de menores y los casos de violencia familiar.

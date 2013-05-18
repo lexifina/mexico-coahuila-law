@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 17 DE MAYO DE 2013)
+Artículo 9 Bis 2. Examen de idoneidad. Recibida la solicitud para acceder a los medios alternos, el Centro o institución respectiva, examinará la controversia y se determinará si es susceptible de resolverse a través de éstos. En su caso, se hará constar que la persona solicitante acepta sujetarse al medio alterno y se invitará a la otra parte a la sesión inicial, de conformidad con los procedimientos previstos en esta Ley.
+Cuando se estime que el asunto no es susceptible de ser resuelto por un medio alterno, el facilitador se lo comunicará al solicitante y, en su caso, a la autoridad que haya hecho la derivación para los efectos legales a que haya lugar.
+Se podrá solicitar al superior del facilitador que reconsidere el examen de idoneidad. En caso de que el superior jerárquico del facilitador estime que es procedente el medio alterno, asignará el asunto a un facilitador diferente al que de inicio lo rechazó.

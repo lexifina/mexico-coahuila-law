@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 17 DE MAYO DE 2013)
+Artículo 11 Bis 1. Obligación del Ministerio Público de procurar los medios alternos. En los conflictos del orden penal o de justicia para adolescentes que puedan resolverse a través de algún medio alterno, el agente del Ministerio Público o la autoridad judicial, en su caso, desde el momento en que tenga conocimiento de los hechos, hará saber a las partes su derecho a recurrir a los medios alternos para solucionar su conflicto, así como los beneficios y bondades que les brindan éstos, exhortándoles a avenirse.
+En caso de que las partes manifiesten su conformidad en someterse a algún medio alterno, se procederá al trámite del mismo; en caso contrario, continuará el proceso penal correspondiente.

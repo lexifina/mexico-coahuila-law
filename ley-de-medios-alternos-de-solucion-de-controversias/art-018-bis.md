@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE MAYO DE 2013)
+Artículo 18 Bis. De los trámites de impedimentos, excusas y recusaciones. Los impedimentos, excusas y recusaciones de los facilitadores serán calificados de plano por su superior jerárquico. La de los Directores de los Centros Regionales, en su caso, serán calificados de igual forma por el Director General y los de éste último se calificarán de manera semejante por el Presidente del Consejo de la Judicatura del Poder Judicial del Estado.

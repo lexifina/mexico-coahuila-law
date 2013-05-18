@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 17 DE MAYO DE 2013)
+Artículo 41 Bis. Suspensión de la sesión de mediación. Si en el desarrollo de la sesión, el facilitador estima fundadamente que el asunto no es susceptible de resolverse por el medio elegido, deberá suspender la sesión y dar por terminado el procedimiento. En caso de tratarse de hechos posiblemente constitutivos de delito grave, deberá canalizar a la víctima u ofendido, de manera inmediata al Ministerio Público.
+De tratarse de un asunto derivado por alguna autoridad, el Centro o el facilitador respectivo, en su caso, rendirá un informe sobre los resultados del procedimiento, para los efectos legales que correspondan.
