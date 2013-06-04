@@ -1,0 +1,5 @@
+P.O. 5 DE ABRIL DE 2013.
+PRIMERO.- El presente decreto entrará en vigor a los 60 días siguientes al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- En los juicios de divorcio, en ambas instancias, que se encuentren pendientes de resolución definitiva que las resuelva, será potestativo para cualquiera de las partes solicitar a la autoridad judicial que conoce la instancia, solicitar la disolución del vínculo matrimonial; de ser así, el juez o magistrado procederá conforme a las disposiciones del presente decreto de reformas.
+Si existe otra pretensión en los juicios pendientes de resolución distinta a la disolución del vínculo matrimonial, el juzgador seguirá el trámite del juicio en relación a estos puntos litigiosos conforme a las disposiciones procesales aplicables y anteriores al presente decreto, hasta resolver en definitiva según corresponda, sin perjuicio de que decrete la disolución del vínculo matrimonial.
+TERCERO.- Se derogan las disposiciones que se opongan al presente decreto.
