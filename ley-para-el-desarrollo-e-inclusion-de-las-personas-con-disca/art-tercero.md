@@ -1,0 +1,1 @@
+Artículo Tercero.- El Poder Ejecutivo del Estado y las autoridades municipales, en el ámbito de sus competencias, tendrán un plazo no mayor a los 120 días posteriores a la entrada en vigencia de la presente ley, para adecuar su normatividad según lo estipulado en la misma.

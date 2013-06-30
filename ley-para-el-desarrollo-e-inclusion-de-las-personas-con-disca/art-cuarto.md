@@ -1,0 +1,1 @@
+Artículo Cuarto.- Las dependencias o entidades de gobierno previstas en la presente ley, deberán establecer en el presupuesto de egresos del ejercicio inmediato siguiente a la publicación de la presente ley, las necesidades presupuestarias en los programas respectivos para dar cumplimiento a las atribuciones y obligaciones previstas en la misma.
