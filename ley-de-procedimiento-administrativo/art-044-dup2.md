@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE AGOSTO DE 2013)
+Artículo 44. Bis.- Los particulares deberán señalar domicilio en la ciudad en la que se encuentre la autoridad administrativa correspondiente, misma que deberá así requerirlo al interesado, para que en él se hagan las notificaciones personales indicadas en esta ley así como notificar a la autoridad el cambio del mismo. En caso de no cumplir con esta obligación, las notificaciones que deban ser personales se harán por cualquier medio señalado en el artículo 43 fracción II de la presente Ley.
