@@ -1,0 +1,8 @@
+TRANSITORIOS
+Primero.- La presente ley entrará en vigor el día de su publicación en el Periódico Oficial del Gobierno del Estado.
+Segundo.- Se abrogan el decreto número 67, expedido el 5 de abril de 1941, por la XXXVI Legislatura del H. Congreso del Estado, mediante el cual se estableció el Archivo Público del Estado, y el Reglamento Interior del mismo Archivo expedido por el Ejecutivo del Estado el 11 de marzo de 1944; y se derogan todas las demás disposiciones legales y reglamentarias en lo que se opongan al contenido de este decreto.
+Tercero.- Se faculta al Gobernador del Estado para que, dentro de un plazo no mayor de noventa días, expida el Reglamento de esta ley, siendo entre tanto aplicables las disposiciones del reglamento que se abroga, en lo que no se opongan a esta ley.
+Salón de Sesiones del Palacio Legislativo, Campeche, Camp., a 12 de agosto de 1997.- Dip. Eleazar Cámara Rivero, Presidente del H. Congreso del Estado.- Dip. Adolfo Cab Poot, Secretario.- Dip. Concepción Matú Chiquini, Secretaria.- Rúbricas.
+En cumplimiento de lo dispuesto por los artículos 48, 49 y 71 fracción XVIII de la Constitución Política del Estado, lo sanciono, mando se imprima, publique y circule para su debida observancia.
+Dado en el Palacio del Gobierno del Estado, en Campeche, a los doce días del mes de agosto del año de mil novecientos noventa y siete.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO, ING. JORGE SALOMON AZAR GARCIA.- EL SECRETARIO DE GOBIERNO, LIC. VICTOR CARLOS PEREZ CAMARA.- RUBRICAS.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
