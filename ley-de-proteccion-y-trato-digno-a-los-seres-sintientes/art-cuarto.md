@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Los Ayuntamientos deberán crear en el plazo de seis meses, a partir de la entrada en vigor de la presente Ley, la conformación de las Áreas Técnicas y Control de Especies Animales y para la creación de los Padrones Municipales de Animales.
