@@ -1,0 +1,4 @@
+P.O. 27 DE DICIEMBRE DE 2013.
+ARTÍCULO PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- El Ejecutivo del Estado, a través de las Secretarías correspondientes, deberá realizar una intensa campaña de difusión e información dirigida a la sociedad en general y particularmente a los jóvenes y a los padres de familia, con el fin de que conozcan y comprendan la finalidad, beneficios y trascendencia social de esta medida preventiva de salud, el sentido de responsabilidad con que debe asumirse la misma, así como realizar un programa de acreditación integral de valores morales.
+ARTÍCULO TERCERO.- Los sujetos obligados deberán dar cumplimiento a lo dispuesto en el presente decreto, a más tardar el 1 de enero de 2014. Las instituciones de educación lo harán a partir del inicio del siguiente ciclo escolar.

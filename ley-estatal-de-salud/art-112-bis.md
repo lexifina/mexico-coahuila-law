@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2013)
+Artículo 112 Bis. Para disminuir el riesgo reproductivo y prevenir las enfermedades a que se refieren las fracciones VIII y XIII del Artículo 107, los establecimientos de salud, terminales de pasajeros, establecimientos para el hospedaje, centros de reunión y espectáculos, establecimientos abiertos al público, establecimientos que expendan o suministren al público bebidas alcohólicas e instituciones de educación media y superior, en lugar visible al público en el interior de sus instalaciones, deberán ofrecer preservativos ya sea para su expendio o entrega.
+Esta disposición podrá aplicarse en instituciones de educación secundaria, cuando así se acuerde por parte de los padres de familia.
