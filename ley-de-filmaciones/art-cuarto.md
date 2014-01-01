@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- En el Código Fiscal para el Estado y la Ley de Hacienda, se incluirá el pago de derechos por servicios prestados por la Secretaría de Cultura que se generen por la aplicación de la presente ley.

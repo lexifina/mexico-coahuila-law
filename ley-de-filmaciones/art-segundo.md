@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- El Congreso del Estado Independiente, Libre y Soberano de Coahuila de Zaragoza, la Secretaría de Finanzas y la Secretaría de Cultura, cada una en su respectivo ámbito de competencia, dotarán a la Comisión del personal técnico y administrativo, así como de los recursos necesarios para cumplir con sus atribuciones.
