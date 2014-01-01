@@ -1,6 +1,7 @@
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 20 DE DICIEMBRE DE 2013)
 CAPITULO QUINTO-BIS
 POR SERVICIOS DE LA SECRETARIA DE INFRAESTRUCTURA
+[N. DE E. PARA CONSULTAR LAS CUOTAS Y TARIFAS ACTUALIZADAS DEL PRESENTE ARTÍCULO VÉASE LA "INFORMACIÓN FISCAL SOBRE TARIFAS DE LAS CONTRIBUCIONES ESTABLECIDAS EN LA LEY DE HACIENDA PARA EL ESTADO DE COAHUILA DE ZARAGOZA, APLICABLES DURANTE EL EJERCICIO FISCAL 2014", PUBLICADA EN LA SEGUNDA SECCIÓN DEL P.O. DE 24 DE DICIEMBRE DE 2013.]
 (ADICIONADO, P.O. 20 DE DICIEMBRE DE 2013)
 ARTICULO 141-A.- Los servicios que prestados (sic) la Secretaría de Infraestructura, causarán los derechos siguientes:
 I. Por la expedición del permiso para la instalación de anuncios publicitarios y señalamientos informativos dentro o fuera del derecho de vía de las carreteras y caminos locales, se pagarán anualmente los derechos conforme a las cuotas que para cada caso a continuación se señala:
