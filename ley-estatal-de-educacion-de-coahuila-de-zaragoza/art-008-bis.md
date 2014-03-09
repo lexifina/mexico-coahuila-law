@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE MARZO DE 2014)
+ARTICULO 8° BIS.- En la Educación Básica y Media Superior el ingreso, la promoción, el reconocimiento y la permanencia de docentes y de personal con funciones de dirección y supervisión, en las instituciones educativas dependientes del Estado y sus organismos descentralizados, así como de los ayuntamientos, se sujetará a lo dispuesto por la Ley General del Servicio Profesional Docente, la Ley General de Educación, la Ley del Instituto Nacional para la Evaluación de la Educación y el presente ordenamiento.

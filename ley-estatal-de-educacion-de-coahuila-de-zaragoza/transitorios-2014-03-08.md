@@ -1,0 +1,6 @@
+P.O. 8 DE MARZO DE 2014.
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente decreto y a la Ley General del Servicio Profesional Docente.
+TERCERO.- Las autoridades escolares de las instituciones educativas establecidas por el Estado, por sus organismos descentralizados y por los particulares con autorización o con reconocimiento de validez oficial de estudios deberán armonizar su normatividad interna y demás disposiciones aplicables, de conformidad con las disposiciones de esta Ley, dentro de los seis meses siguientes a su entrada en vigor.
+CUARTO.- Las instituciones educativas, sus organismos descentralizados y los particulares con autorización o con reconocimiento de validez oficial de estudios que a la entrada en vigor de la presente Ley se encuentren con permiso de suspensión deberán realizar las acciones conducentes a fin de reanudar sus labores educativas y en su caso atender lo dispuesto por el artículo 80 Bis de la presente Ley.
+QUINTO.- El Estatuto deberá armonizar sus términos a lo establecido por la Ley General del Servicio Profesional Docente, dentro de los seis meses siguientes a la entrada en vigor de la presente reforma.

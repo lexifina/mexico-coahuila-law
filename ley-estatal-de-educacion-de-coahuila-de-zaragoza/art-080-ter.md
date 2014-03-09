@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE MARZO DE 2014)
+ARTICULO 80 TER.- Respecto a los actos administrativos que con motivo del cumplimiento de esta ley deban ser aplicados a los particulares que hayan obtenido autorización o reconocimiento de validez oficial de estudios y no se encuentren establecidos en la presente Ley, se aplicará de manera supletoria la Ley del Procedimiento Administrativo para el Estado de Coahuila de Zaragoza.
