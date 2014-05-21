@@ -1,0 +1,5 @@
+P.O. 20 DE MAYO DE 2014.
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- El Congreso del Estado presentará ante el Congreso de la Unión una Iniciativa de Reformas a la Constitución Política de los Estados Unidos Mexicanos, para proponer el reconocimiento de los derechos y garantías de las personas desaparecidas conforme a los contenidos similares previstos en este Decreto.
+TERCERO.- Dentro de los ochenta días siguientes a la entrada en vigor de este Decreto, se presentará ante el Congreso del Estado la Iniciativa de Carta de Derechos de las Personas Desaparecidas para desarrollar los derechos y garantías bajo los estándares internacionales.
+CUARTO.- Dentro de los ciento sesenta días siguientes a la entrada en vigor de este Decreto, se presentará la Ley General de Desaparición de Personas del Estado de Coahuila de Zaragoza conforme a las recomendaciones internacionales de organismos de derechos humanos.
