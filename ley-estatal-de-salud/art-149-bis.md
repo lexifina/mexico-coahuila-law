@@ -5,4 +5,4 @@ II. Regular la prestación del tratamiento y asistencia integral a personas que 
 III. Fomentar los valores universales, así como el respeto a la dignidad de la persona dependiente de sustancias psicoactivas;
 IV. Establecer las medidas necesarias para lograr la reinserción social de las personas dependientes de sustancias psicoactivas;
 V. Implementar las bases mínimas para diseñar el contenido de políticas, programas y acciones de sensibilización, prevención, atención, tratamiento y erradicación de las adicciones;
-VI. Promover y difundir acciones que ayuden a la sensibilización, prevención, recuperación y reinserción social de las personas dependientes de sustancias psicoactivas y fomenten el desarrollo del sentido social en esta materia, y (sic)
+VI. Promover y difundir acciones que ayuden a la sensibilización, prevención, recuperación y reinserción social de las personas dependientes de sustancias psicoactivas y fomenten el desarrollo del sentido social en esta materia, y
