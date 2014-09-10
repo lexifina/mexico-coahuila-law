@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 9 DE SEPTIEMBRE DE 2014)
+Artículo 26 Ter. Los Consejos de Participación Ciudadana Municipales elaborarán los proyectos de los Programas Municipales para la Prevención Social de la Violencia y la Delincuencia, y los presentarán oportunamente a sus Ayuntamientos para su aprobación dentro de los primeros dos meses del año de ejercicio. A más tardar en el tercer mes, los Ayuntamientos deberán discutir y votar los proyectos presentados.
+Los Comités y Consejos de Participación Ciudadana Municipales quedarán adscritos a los Ayuntamientos, o en su caso, al Concejo Municipal y a las dependencias o entidades que sean competentes en la materia, para lograr la coordinación eficaz con las autoridades municipales.
+El Centro Estatal, en coordinación con el Secretariado Ejecutivo, supervisará y evaluará la política municipal aprobada por los Ayuntamientos y emitirá un informe que será entregado al Consejo Estatal.
+El incumplimiento en la elaboración, presentación, votación y ejecución de los programas dará lugar a la imposición de las sanciones que determine el Consejo Estatal.
