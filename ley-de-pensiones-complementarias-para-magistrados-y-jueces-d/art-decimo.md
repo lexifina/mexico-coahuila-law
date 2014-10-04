@@ -1,0 +1,2 @@
+ARTÍCULO DÉCIMO.- El Congreso del Estado dispondrá a partir del presupuesto del 2015 y subsiguientes, el monto de los recursos que serán destinados para la implementación y aplicación del sistema de pensiones previsto en la presente ley.
+El Consejo de la Judicatura del Estado, al 15 de enero del siguiente ejercicio presupuestal establecerá las bases y condiciones para la constitución del fondo de pensiones y los instrumentos pertinentes para ello.

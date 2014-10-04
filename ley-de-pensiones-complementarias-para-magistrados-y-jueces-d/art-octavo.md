@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO.- Los Magistrados o Jueces que estén en ejercicio constitucional que sufran incapacidad o invalidez, tendrán derecho a la pensión complementaria por incapacidad o invalidez a que se refiere el artículo 8 de la presente Ley, cualesquiera que sean los años de servicio, en los términos de los artículos tercero y cuarto transitorios.

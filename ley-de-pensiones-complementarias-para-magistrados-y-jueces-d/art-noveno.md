@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO.- Los beneficiarios de los Magistrados o Jueces que estuviesen disfrutando de una pensión o los que estén en ejercicio constitucional contemplados en el artículo 3 de esta Ley tendrán derecho (sic) la pensión complementaria, en los términos de los artículos tercero y cuarto transitorios.

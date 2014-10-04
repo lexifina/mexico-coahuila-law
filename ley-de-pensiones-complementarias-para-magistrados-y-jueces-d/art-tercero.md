@@ -1,0 +1,2 @@
+ARTÍCULO TERCERO.- Para los efectos de esta Ley los Magistrados o Jueces designados conforme a los periodos establecidos en la legislación aplicable hasta antes de la publicación de la misma, serán considerados Magistrados o Jueces en ejercicio constitucional.
+Las pensiones de los Magistrados y Jueces en ejercicio constitucional se integrarán por la pensión que otorga el Instituto de Pensiones del Estado y por la pensión complementaria que regula la presente ley, mismas que sumadas corresponderán al cien por ciento del ingreso mensual neto.

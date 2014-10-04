@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO PRIMERO.- Los Magistrados o Jueces en ejercicio constitucional solamente tendrán derecho a las pensiones especificadas en los artículos transitorios anteriores, aun cuando se tenga derecho a otra pensión con cargo al Instituto de Pensiones del Estado.
