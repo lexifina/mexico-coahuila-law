@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Los Organismos Públicos Descentralizados Municipales, que tengan por objeto la prestación de pensiones y otros beneficios sociales, constituidos con anterioridad a la entrada en vigor de la presente Ley, contarán con un plazo de 6 meses contados a partir (sic) dicha entrada en vigor, para adecuar su legislación de conformidad con la presente Ley.

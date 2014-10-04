@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- Los Municipios que a la entrada en vigor de la presente Ley, cuenten con un sistema de pensiones que sea viable y se encuentre sustentado en estudios actuariales especializados en la materia, únicamente adecuarán su Fondo de Pensiones a los lineamientos establecidos en esta Ley, siempre que beneficie financieramente a dicho fondo.
