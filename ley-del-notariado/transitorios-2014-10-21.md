@@ -1,0 +1,2 @@
+P.O. 21 DE OCTUBRE DE 2014.
+ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Coahuila de Zaragoza y la aplicación de lo que se dispone en el mismo, se hará conforme al plazo establecido en el Transitorio Séptimo de la Ley de Acceso a la Información Pública y Protección de Datos Personales para el Estado de Coahuila de Zaragoza, con relación al Artículo 46 del propio ordenamiento, publicado en el Periódico Oficial del Gobierno del Estado de Coahuila de Zaragoza el 26 de agosto de 2014.
