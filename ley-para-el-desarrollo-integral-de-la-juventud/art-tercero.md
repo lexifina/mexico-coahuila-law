@@ -1,0 +1,22 @@
+ARTÍCULO TERCERO.- Se derogan todas las disposiciones legales y reglamentarias que se opongan al presente Decreto.
+DADO en el Salón de Sesiones del Congreso del Estado, en la Ciudad de Saltillo, Coahuila de Zaragoza, a los dieciocho días del mes de septiembre del año dos mil catorce.
+DIPUTADA PRESIDENTA
+NORMA ALICIA DELGADO ORTÍZ
+(RÚBRICA)
+DIPUTADA SECRETARIA
+ELVIA GUADALUPE MORALES GARCÍA
+(RÚBRICA)
+DIPUTADO SECRETARIO
+FERNANDO DE LA FUENTE VILLARREAL
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 27 de octubre de 2014
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+RUBÉN IGNACIO MOREIRA VALDEZ
+(RÚBRICA
+EL SECRETARIO DE GOBIERNO
+ARMANDO LUNA CANALES
+(RÚBRICA)
+EL SECRETARIO DE LA JUVENTUD
+CARLOS GERARDO GARCÍA VEGA
+(RÚBRICA)

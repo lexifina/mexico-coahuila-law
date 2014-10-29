@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- El reglamento del Sistema Estatal para la Participación Social de la Juventud se expedirá en un período que no excederá de noventa días naturales, a partir de la entrada en vigor de la presente ley.
