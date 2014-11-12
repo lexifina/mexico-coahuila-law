@@ -4,8 +4,8 @@ I. Los recursos que integran la hacienda municipal serán ejercidos en forma dir
 II. El Congreso del Estado discutirá y aprobará las leyes de ingresos de los Municipios, en los términos de las disposiciones aplicables. La deuda pública municipal se sujetará a los principios que establece esta Constitución y demás disposiciones aplicables.
 (ADICIONADO, P.O. 17 DE AGOSTO DE 2007)
 En el caso de no aprobarse alguna de las leyes de ingresos, continuarán en vigor las del año inmediato anterior del municipio o municipios de que se trate, con las actualizaciones a que se refiere el tercer párrafo de la fracción XXXIII del artículo 67 de esta Constitución.
-(REFORMADA, P.O. 22 DE JUNIO DE 2007)
-III. El Congreso del Estado revisará y fiscalizará por conducto de la Auditoria Superior del Estado, las cuentas públicas de los Municipios, en los términos de las disposiciones aplicables. El Congreso del Estado en coordinación con los municipios garantizará la disposición de la información de la cuenta pública municipal a la comunidad en general, a través de instrumentos confiables, oportunos y transparentes;
+(REFORMADA, P.O. 11 DE NOVIEMBRE DE 2014)
+III. El Congreso del Estado revisará por conducto de la Auditoría Superior del Estado, la gestión financiera y las cuentas públicas de los municipios, en los términos de las disposiciones aplicables; la cual en coordinación con los municipios garantizará la disposición de la información correspondiente a la gestión financiera y de la cuenta pública municipal a la comunidad en general, a través de instrumentos confiables, oportunos y transparentes;
 (ADICIONADA [N. DE E. REFORMADA], P.O. 23 DE DICIEMBRE DE 2008) (F. DE E., P.O. 10 DE ABRIL DE 2009)
 IV. Los presupuestos de egresos serán aprobados por los Ayuntamientos con base en sus ingresos disponibles y de acuerdo a la programación de sus actividades gubernamentales y administrativas, observando para tal efecto las disposiciones aplicables.
 (F. DE E., P.O. 10 DE ABRIL DE 2009)
