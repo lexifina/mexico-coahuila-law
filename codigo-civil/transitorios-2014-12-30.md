@@ -1,0 +1,6 @@
+P.O. 30 DE DICIEMBRE DE 2014.
+ARTÍCULO PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Las disposiciones contenidas en la Ley Reglamentaria del Registro Público del Estado de Coahuila de Zaragoza, publicada el día 23 de noviembre de 1999 en el Periódico Oficial del Estado, estarán vigentes solamente en las oficinas registrales en las que aún no se implemente el nuevo sistema registral previsto en la presente ley.
+La implementación del nuevo sistema registral será determinada por la Secretaría de Gobierno, la cual definirá el esquema de aplicación gradual en todo el estado; una vez que se haya implementado el sistema registral en todas las oficinas registrales, la Ley Reglamentaria del Registro Público del Estado de Coahuila de Zaragoza, publicada el día 23 de noviembre de 1999 en el Periódico Oficial del Estado quedará abrogada.
+ARTÍCULO TERCERO.- Hasta en tanto las oficinas registrales no cuenten con la tecnología necesaria para realizar trámites electrónicos, el usuario deberá presentarlos de manera física.
+ARTÍCULO CUARTO.- Se derogan todas las disposiciones que se opongan al presente decreto.
