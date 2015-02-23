@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- La Comisión para la supervisión de la administración de bienes asegurados, abandonados y decomisados, deberá constituirse dentro de los 10 días hábiles siguientes a la entrada en vigor de la Ley para la Administración de Bienes Asegurados, Abandonados o Decomisados para el Estado de Coahuila de Zaragoza.

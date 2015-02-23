@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO.- El presente decreto entrará en vigor a los 90 días naturales siguientes al de su publicación y será aplicable al Sistema Penal Tradicional así como al Sistema Penal Acusatorio Adversarial de acuerdo a la forma gradual en que éste se implemente.
