@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE MAYO DE 2015)
+Artículo 6 Bis.- El Sistema se integra por las dependencias y entidades de la Administración Pública Estatal y Municipal así como por organizaciones de la sociedad civil que actúen dentro del Estado que tengan la obligación o facultad de garantizar los derechos humanos de niños, niñas y adolescentes debiendo observar como mínimo los principios rectores establecidos en la presente Ley.
