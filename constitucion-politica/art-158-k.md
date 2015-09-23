@@ -2,9 +2,10 @@
 Artículo 158-K. Cada Municipio será gobernado por un Ayuntamiento integrado por un presidente municipal y el número de regidores y síndicos que establezca la ley de la materia.
 El Ayuntamiento se conformará de acuerdo con las bases siguientes:
 I. Sus integrantes serán electos en la forma que establezca la ley de la materia.
-II. Se prohibe la reelección en los términos del último párrafo del artículo 30 de esta Constitución.
-(REFORMADA, P.O. 13 DE OCTUBRE DE 2001)
-III. Se renovará en su totalidad cada cuatro años.
+(REFORMADA, P.O. 22 DE SEPTIEMBRE DE 2015)
+II. La elección consecutiva será permitida en los términos del artículo 30 de esta Constitución por un período adicional.
+(REFORMADA, P.O. 22 DE SEPTIEMBRE DE 2015)
+III. Se renovará en su totalidad cada tres años.
 IV. Iniciará sus funciones el primero de enero del año inmediato siguiente al de la elección y concluirá el día anterior a aquel en que inicie funciones el que lo sucederá.
 V. La ley de la materia introducirá el principio de representación proporcional en la elección de los Ayuntamientos, en todos los Municipios del Estado.
 (REFORMADA, P.O. 2 DE AGOSTO DE 2007)
