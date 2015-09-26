@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Las menciones que se hagan del salario mínimo general vigente en el Estado de Coahuila de Zaragoza, en las normas locales vigentes, incluso en aquellas pendientes de publicar o de entrar en vigor, se entenderán hechas a la Unidad de Cuenta del Estado de Coahuila de Zaragoza, a partir de la entrada en vigor del presente Decreto.

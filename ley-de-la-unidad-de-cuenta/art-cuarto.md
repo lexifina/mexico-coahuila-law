@@ -1,0 +1,2 @@
+ARTÍCULO CUARTO.- El valor inicial de la Unidad de Cuenta del Estado de Coahuila de Zaragoza, será por única ocasión de 68.28 pesos equivalentes al salario mínimo general vigente en el Estado de Coahuila de Zaragoza.
+A partir del año 2016 el valor de la Unidad de Cuenta del Estado de Coahuila de Zaragoza incluyendo su actualización se establecerá en la Ley de Ingresos del Estado de Coahuila de Zaragoza.

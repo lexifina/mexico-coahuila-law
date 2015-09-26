@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Los convenios y contratos de cualquier naturaleza que se encuentren en vigor al inicio de la vigencia del presente decreto, que hagan referencia al salario mínimo general vigente en el Estado de Coahuila de Zaragoza para cualquier efecto no se sustituirá por la unidad de cuenta, a menos que expresamente las partes acuerden lo contrario.

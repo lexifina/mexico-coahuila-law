@@ -1,0 +1,22 @@
+ARTÍCULO SEXTO.- Se derogan todas aquellas disposiciones que se opongan al presente Decreto.
+DADO en el Salón de Sesiones del Congreso del Estado, en la Ciudad de Saltillo, Coahuila de Zaragoza, a los tres días del mes de septiembre del año dos mil quince.
+DIPUTADA PRESIDENTA
+GEORGINA CANO TORRALVA
+(RÚBRICA)
+DIPUTADO SECRETARIO
+SERGIO GARZA CASTILLO
+(RÚBRICA)
+DIPUTADO SECRETARIO
+LEONEL CONTRERAS PÁMANES
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 22 de septiembre de 2015
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+RUBÉN IGNACIO MOREIRA VALDEZ
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+VÍCTOR MANUEL ZAMORA RODRÍGUEZ
+(RÚBRICA)
+EL SECRETARIO DE FINANZAS
+ISMAEL EUGENIO RAMOS FLORES
+(RÚBRICA)
