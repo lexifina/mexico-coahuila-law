@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE OCTUBRE DE 2015)
+Artículo 8 bis.- Todas las instituciones de orden público y privado del Estado, procuraran que sus instalaciones existan las condiciones de infraestructura necesarias para el fácil acceso de los adultos mayores, otorgándoles por lo menos sillas de espera, y una fila preferencial para que se les dé a los Adultos Mayores un trato digno, especial y primordial al momento de realizar un trámite personal.
