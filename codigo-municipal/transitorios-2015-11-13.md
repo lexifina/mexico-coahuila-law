@@ -1,0 +1,3 @@
+P.O. 13 DE NOVIEMBRE DE 2015.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 186.- SE ADICIONA UN SEGUNDO PÁRRAFO AL NUMERAL 14 DE LA FRACCIÓN I DEL ARTÍCULO 102, DEL CÓDIGO MUNICIPAL PARA EL ESTADO DE COAHUILA DE ZARAGOZA."]
+UNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
