@@ -1,0 +1,4 @@
+P.O. 15 DE DICIEMBRE DE 2015.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 222.- SE ADICIONA UNA FRACCIÓN IX AL ARTÍCULO 197 Y SE ADICIONA UNA FRACCIÓN IV Y SE RECORREN LAS ANTERIORES, REFORMANDO LA FRACCIÓN VI Y IX, ADICIONÁNDOSE UN ÚLTIMO PÁRRAFO AL ARTÍCULO 261 DEL CÓDIGO CIVIL DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- La reforma contenida en el presente Decreto, deberá ser tomada en consideración en el trámite legislativo de la Iniciativa con Proyecto de Decreto que crea la Ley para la Familia de Coahuila de Zaragoza y el Código de Procedimientos Familiares para el Estado de Coahuila de Zaragoza, presentada por el titular del Ejecutivo del Estado, el día 28 de Enero de 2015.
