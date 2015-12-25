@@ -1,0 +1,4 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2015)
+ARTICULO 62-C. La Defensoría para la Protección y Promoción de los Derechos del Contribuyente, una vez que acuse recibo de la respuesta de la autoridad fiscal, contará con un plazo de veinte días para concluir el procedimiento a que se refiere este Capítulo, lo que se notificará a las partes. De concluirse el procedimiento con la suscripción del Acuerdo, éste deberá firmarse por el contribuyente y la autoridad revisora, así como por la referida Defensoría.
+Para mejor proveer a la adopción del acuerdo conclusivo, la Defensoría para la Protección y Promoción de los Derechos del Contribuyente podrá convocar a mesas de trabajo, promoviendo en todo momento la emisión consensuada del acuerdo entre autoridad y contribuyente.

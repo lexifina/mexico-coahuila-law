@@ -1,0 +1,36 @@
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 22 DE DICIEMBRE DE 2015)
+SECCION SEGUNDA
+POR SERVICIOS DE LA COMISIÓN ESTATAL DE LA VIVIENDA
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2015)
+ARTICULO 138-A.- Los servicios que presta la Secretaría de Gestión Urbana, Agua y Ordenamiento Territorial, causarán derechos conforme a la siguiente:
+TARIFA
+I. Por los servicios que otorga la Comisión Estatal de la Vivienda.
+A. Unidad Administrativa de la Regularización de la Tenencia de la Tierra:
+1. Por la elaboración de escritura privada de predio o lote urbano se pagarán $670.00 (SEISCIENTOS SETENTA PESOS 00/100 M.N.) por escritura;
+2. Por la verificación de medidas de predios o lotes se pagarán $114.00 (CIENTO CATORCE PESOS 00/100 M.N.) por cada inmueble a verificar;
+3. Por la elaboración de plano manzanero se pagarán $56.00 (CINCUENTA Y SEIS PESOS 00/100 M.N.) por plano que comprenda un lote;
+4. Por la validación de cesión de derechos se pagarán $272.00 (DOSCIENTOS SETENTA Y DOS PESOS 00/100 M.N.) por predio o lote que ampare la cesión.
+5. Por la constancia para trámite de predial se pagarán $56.00 (CINCUENTA Y SEIS PESOS 00/100 M.N.);
+6. Por la cancelación de escritura en proceso, a petición de parte, se pagarán $670.00 (SEISCIENTOS SETENTA PESOS 00/100 M.N.);
+7. Por escrituras privadas del Programa de Predios Rústicos para el Municipio de Saltillo:
+a. Predios/lotes de hasta 500 metros pagarán $3,970.00 (TRES MIL NOVECIENTOS SETENTA PESOS 00/100 M.N.);
+b. Predios/lotes de más de 501 metros a 10 hectáreas, pagarán $5,672.00 (CINCO MIL SEISCIENTOS SETENTA Y DOS PESOS 00/100 M.N.);
+c. Predios/lotes de 10-00-01 hectáreas a 20 hectáreas, pagarán $7,942.00 (SIETE MIL NOVECIENTOS CUARENTA Y DOS PESOS 00/100 M.N.);
+d. Predios/lotes de 20-00-01 hectáreas a 30 hectáreas, pagarán $11,345.00 (ONCE MIL TRESCIENTOS CUARENTA Y CINCO PESOS 00/100 M.N.);
+8. Por escrituras privadas del Programa de Predios Rústicos para el resto del Estado:
+a. Predios/lotes con superficie hasta de 300 metros, pagarán $1,702.00 (MIL SETECIENTOS DOS PESOS 00/100 M.N.);
+b. Predios/lotes con superficie de 301 metros hasta 10 hectáreas, pagarán $3,970.00 (TRES MIL NOVECIENTOS SETENTA PESOS 00/100 M.N.);
+c. Predios/lotes con superficie mayor de 10-00-01 hectáreas hasta 20 hectáreas, pagarán $5,672.00 (CINCO MIL SEISCIENTOS SETENTA Y DOS PESOS 00/100 M.N.);
+d. Predios/lotes con superficie mayor de 20-00-01 hectáreas hasta 40 hectáreas, pagarán $9,076.00 (NUEVE MIL SETENTA Y SEIS PESOS 00/100 M.N.);
+B. Unidad Administrativa en materia inmobiliaria y de vivienda popular.
+1. Por la expedición del documento que contiene la información del predio y la constancia de pago del mismo denominada carta de liberación:
+a. Que correspondan a las colonias Jardines del Lago, Saltillo 400, Fundadores IV Sector y Asturias de Saltillo, Coahuila de Zaragoza, se pagarán $1,588.00 (MIL QUINIENTOS OCHENTA Y OCHO PESOS 00/100 M.N.);
+b. Que correspondan a las colonias Fundadores III Sector en Saltillo, colonia Latinoamericano en Torreón y la colonia Elsa Hernández en Monclova, Coahuila de Zaragoza, se pagarán $793.00 (SETECIENTOS NOVENTA Y TRES PESOS 00/100 M.N.);
+c. Que correspondan a fraccionamientos distintos a los señalados en los dos apartados anteriores en todo el territorio del Estado, se pagarán $226.00 (DOSCIENTOS VEINTISÉIS PESOS 00/100 M.N.);
+2. Por la expedición de una carta de liberación actualizada que sustituye a la expedida en otra época, se pagarán $226.00 (DOSCIENTOS VEINTISEIS PESOS 00/100 M.N.);
+3. Por la expedición del documento en el que se contiene la información del predio y la constancia de pago del mismo, pero que es propiedad de algún Municipio del Estado, se expide la denominada carta de no adeudo, se pagarán $226.00 (DOSCIENTOS VEINTISÉIS PESOS 00/100 M.N.);
+4. Por la expedición del croquis de ubicación de un predio, necesario para el trámite de número oficial ante los Municipios del Estado, se pagarán $114.00 (CIENTO CATORCE PESOS 00/100 M.N.);
+5. Por la elaboración del documento que contiene la manifestación de voluntad del propietario de un predio de ceder sus derechos como titular a favor de un tercero, documento denominado cesión de derechos:
+Cuando se trata de la cesión del primer titular del predio a un tercero, el costo será de $793.00 (SETECIENTOS NOVENTA Y TRES PESOS 00/100 M.N.);
+Cuando se trata de la cesión del segundo titular en adelante del predio a un tercero, el costo será de $5,672.00 (CINCO MIL SEISCIENTOS SETENTA Y DOS PESOS 00/100 M.N.);
+6. Por la certificación de la documentación que obra en el expediente de la dependencia, correspondiente a la titularidad de una persona respecto a un predio y de la cual el titular no tiene constancia, denominada regularización de expediente, el costo será de $567.00 (QUINIENTOS SESENTA Y SIETE PESOS 00/100 M.N.).
