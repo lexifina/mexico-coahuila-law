@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE ENERO DE 2016)
+ARTICULO 39 B.- En los casos de los trabajadores que a la fecha de pensionarse presenten saldo insoluto en su crédito se descontarán de su pensión los subsecuentes pagos en favor del Organismo.

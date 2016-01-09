@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE ENERO DE 2016)
+ARTICULO 39 A.- Los créditos para la conservación, remodelación, mejoras menores para vivienda y menaje de casa, se otorgarán a los trabajadores y pensionados de acuerdo con el programa anual que autorice el Consejo de Administración con base en el presupuesto del propio fondo y su importe estará sujeto a la capacidad de pago del solicitante condicionado además por la edad civil en relación a la expectativa de vida, en los términos que se establezcan en (sic) Reglamento correspondiente.

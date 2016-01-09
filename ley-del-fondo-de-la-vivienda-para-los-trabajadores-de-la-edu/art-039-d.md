@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE ENERO DE 2016)
+ARTICULO 39 D.- En caso de separación definitiva del servicio activo o fallecimiento del trabajador, él o sus beneficiarios, tendrán derecho a que se les reintegre el 50% de las aportaciones acumuladas a favor del trabajador, siempre y cuando no haya disfrutado de algunos de los beneficios que este Organismo otorga. El derecho a esta prestación prescribirá en favor del Organismo a los cinco años a partir de la fecha en que fuere exigible.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE ENERO DE 2016)
+ARTICULO 15 A.- Los intereses del gobierno estatal dentro del Organismo, estarán representados por dos funcionarios; uno por parte de la dependencia encargada de las finanzas estatales y otro por parte de la dependencia encargada de la fiscalización, transparencia y rendición de cuentas, o por quienes designe el ejecutivo estatal, a los que se les denominará Representantes del Gobierno del Estado.
