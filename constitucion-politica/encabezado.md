@@ -1,4 +1,5 @@
 CONSTITUCIÓN POLÍTICA DEL ESTADO DE COAHUILA DE ZARAGOZA
+[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 19 DE FEBRERO DE 2016.]
 Constitución publicada en el Periódico Oficial del Estado de Coahuila de Zaragoza, el 19 de febrero de 1918.
 GUSTAVO ESPINOSA MIRELES, Gobernador Constitucional del Estado Independiente, Libre y Soberano de Coahuila de Zaragoza, a sus habitantes, sabed:
 Que el Congreso del mismo ha decretado lo siguiente:
