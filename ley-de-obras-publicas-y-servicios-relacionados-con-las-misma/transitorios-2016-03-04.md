@@ -1,0 +1,5 @@
+P.O. 4 DE MARZO DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 387.- SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS PARA EL ESTADO DE COAHUILA DE ZARAGOZA; DE LA LEY DE ADQUISICIONES, ARRENDAMIENTOS Y CONTRATACIÓN DE SERVICIOS PARA EL ESTADO DE COAHUILA DE ZARAGOZA; DE LA LEY DE ACCESO A LA INFORMACIÓN PÚBLICA Y PROTECCIÓN DE DATOS PERSONALES PARA EL ESTADO DE COAHUILA DE ZARAGOZA, ASÍ COMODEL (SIC) CÓDIGO PENAL DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Dentro de un plazo de quince días los Órganos de Control Interno de la Administración Pública del Estado y de los Municipios en el ámbito de sus respectivas competencias, deberán expedir el Código de Conducta y en su caso, los formatos de Manifiesto de No Conflicto de Intereses de acuerdo con el presente Decreto.
+TERCERO.- Se derogan las disposiciones de las leyes y reglamentos que sean contrarias a las normas establecidas en la presente Ley.
