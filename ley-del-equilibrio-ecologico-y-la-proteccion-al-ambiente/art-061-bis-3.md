@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 8 DE MARZO DE 2016)
+ARTICULO 61 BIS 3.- Los monumentos naturales estatales, se constituyen por uno o varios elementos naturales de singular valor paisajístico, histórico o geológico, que representen un símbolo de identidad o se considere emblemático para el Estado, razones por las cuales se resuelva incorporarlos a un régimen de protección especial.
+En los monumentos naturales estatales, podrán permitirse acciones de investigación, conservación, recuperación, recreación y turismo de naturaleza sustentable, en los casos que así se determine dentro del programa de manejo correspondiente y demás disposiciones aplicables.
