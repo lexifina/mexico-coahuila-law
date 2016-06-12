@@ -1,3 +1,2 @@
-(REFORMADO, P.O. 16 DE SEPTIEMBRE DE 2014)
-ARTÍCULO 605 BIS.
-El Juez de la causa deberá en beneficio de los menores internos en una institución de asistencia social pública o privada, decretar dentro de un mismo juicio la pérdida de la patria potestad tanto a los padres como a los abuelos, cuando estos últimos no evitaron los hechos que dieron motivo a la misma, o bien mostraron nulo interés en el bienestar del menor, así como también cuando quede acreditada alguna de las causas señaladas en el artículo 545 del Código Civil Vigente en el Estado, lo anterior no está condicionado a que los padres hayan sido previamente privados, suspendidos o limitados en el ejercicio de los derechos de patria potestad, bastando con que los padres se encuentren impedidos para ejercerlos, ya sea física, mental o moralmente con independencia de que exista una resolución judicial que así lo haya determinado.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+ARTÍCULO 605 BIS. (DEROGADO, P.O. 15 DE DICIEMBRE DE 2015)
