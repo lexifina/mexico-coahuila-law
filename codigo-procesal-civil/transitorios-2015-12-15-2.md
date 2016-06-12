@@ -1,5 +1,8 @@
 P.O. 15 DE DICIEMBRE DE 2015.
 [N. DE E. TRANSITORIOS DEL "DECRETO NO. 229.- SE REFORMAN Y DEROGAN DIVERSAS DISPOSICIONES DEL CÓDIGO CIVIL PARA EL ESTADO DE COAHUILA DE ZARAGOZA; DEL CÓDIGO PROCESAL CIVIL PARA EL ESTADO DE COAHUILA DE ZARAGOZA ASÍ COMO DE LA LEY ORGÁNICA DEL PODER JUDICIAL DEL ESTADO DE COAHUILA DE ZARAGOZA".]
-PRIMERO.- El presente Decreto entrará en vigor 180 días después de su publicación en el Periódico Oficial del Gobierno del Estado.
+(REFORMADO, P.O. 10 DE JUNIO DE 2016)
+PRIMERO.- El presente Decreto entrará en vigor a los 180 días siguientes a su publicación en el Periódico Oficial del Gobierno del Estado en el distrito judicial que determine el Consejo de la Judicatura del Poder Judicial del Estado, conforme al acuerdo que emita para tales efectos.
+Del mismo modo, corresponde al Consejo de la Judicatura determinar la gradualidad en la que entrará en vigor en el resto de los distritos judiciales, considerando las necesidades del servicio y la factibilidad presupuestal asignada para esos efectos. En todo caso, el proceso de gradualidad deberá considerar como fecha de conclusión el 31 de diciembre de 2016.
+Hasta en tanto entren en vigor las disposiciones previstas en este decreto conforme lo señalan los párrafos que anteceden, continuarán aplicándose las disposiciones previstas, en lo conducente, en el Código Civil para el Estado de Coahuila de Zaragoza, en el Código Procesal Civil para el Estado de Coahuila de Zaragoza y en la Ley Orgánica del Poder Judicial del Estado de Coahuila de Zaragoza.
 SEGUNDO.- Todos los juicios en trámite o que se inicien hasta antes de la entrada en vigor de este decreto, se rigen hasta su conclusión por el Código Procesal Civil para el Estado de Coahuila de Zaragoza vigente en la fecha que se iniciaron.
 TERCERO.- Se derogan las disposiciones que se opongan al presente decreto.
