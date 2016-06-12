@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 26 DE JUNIO DE 2012)
-ARTÍCULO 238 BIS. Sin perjuicio de lo dispuesto en el artículo 237 de este Código, procede la rectificación de un acta de forma administrativa en los asuntos en que haya que variarse el nombre propio del registrado en las actas de nacimiento, cuando se demuestre a través de documentos fehacientes que siempre ha sido designado con un nombre distinto del que aparece en el acta, siempre que no se altere la filiación o parentesco del registrado y mediante el procedimiento que la Ley del Registro Civil para el Estado de Coahuila de Zaragoza establezca.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+ARTÍCULO 238 BIS. (DEROGADO, P.O. 15 DE DICIEMBRE DE 2015)
