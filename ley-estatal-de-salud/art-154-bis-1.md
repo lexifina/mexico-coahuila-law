@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 19 DE OCTUBRE DE 2012)
 Artículo 154 bis 1. El Gobierno del Estado y los municipios, para prevenir y evitar el consumo de narcóticos o cualquier otra sustancia psicoactiva estimulante o depresora, se ajustarán a lo siguiente:
-I. Determinarán y ejercerán medios de control en el expendio de sustancias inhalables para prevenir su consumo de la población en general, en especial de menores de edad y personas con capacidades diferentes;
+(REFORMADA, P.O. 9 DE AGOSTO DE 2016)
+I. Determinarán y ejercerán medios de control en el expendio de sustancias inhalables para prevenir su consumo de la población en general, en especial de menores de edad y personas con discapacidad;
 II. Implementarán sistemas de vigilancia en los establecimientos destinados al expendio y uso de dichas sustancias para evitar el empleo indebido de las mismas;
 III. Brindarán la atención médica y los tratamientos que se requiera, a las personas que realice (sic) o hayan realizado el consumo de narcóticos;
 IV. Promoverán y llevarán a cabo campañas permanentes de información y orientación al público, para la prevención de daños a la salud provocados por el consumo de narcóticos;
