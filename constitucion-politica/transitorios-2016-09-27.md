@@ -1,0 +1,4 @@
+P.O. 27 DE SEPTIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 538.- SE REFORMA Y ADICIONA EL ARTÍCULO 8 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- En el ámbito de sus atribuciones, de conformidad con las disposiciones de la Constitución Política de los Estados Unidos Mexicanos, así como de sus normas reglamentarias en la materia, el Gobierno del Estado coadyuvará en la implementación de la política de inclusión digital universal a cargo del Ejecutivo Federal. Asimismo, realizará las acciones tendientes a garantizar el acceso a Internet de banda ancha en edificios e instalaciones de las dependencias y entidades de la Administración Pública Estatal.
