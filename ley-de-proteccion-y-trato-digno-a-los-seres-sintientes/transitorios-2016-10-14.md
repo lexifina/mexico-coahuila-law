@@ -1,0 +1,4 @@
+P.O. 14 DE OCTUBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 548.- SE ADICIONA LA FRACCIÓN VII AL ARTÍCULO 4, RECORRIÉNDOSE LAS ULTERIORES, LA FRACCIÓN IX AL ARTÍCULO 14, LA FRACCIÓN X AL ARTÍCULO 15, LAS FRACCIONES VIII Y IX AL ARTÍCULO 22, Y SE REFORMAN LAS FRACCIONES IV, VIII, Y IX DEL ARTÍCULO 15 DE LA LEY DE PROTECCIÓN Y TRATO DIGNO A LOS ANIMALES".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Para adecuar el reglamento respectivo, el Ejecutivo del Estado contará con un plazo de 60 días naturales, a partir de la entrada en vigor del presente Decreto, el cual deberá establecer los criterios para considerar a un animal potencialmente peligroso, y los requisitos para que los Ayuntamientos otorguen las licencias a las que se refiere la presente reforma, incluyendo dentro de sus disposiciones la obligación de contar con un curso de acreditación en el manejo de animales.
