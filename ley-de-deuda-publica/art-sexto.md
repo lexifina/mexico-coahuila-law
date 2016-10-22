@@ -1,0 +1,3 @@
+ARTÍCULO SEXTO.- El Registro Público Único a que se refiere esta Ley, sustituirá al Registro de Obligaciones y Empréstitos de Entidades y Municipios a cargo de la Secretaría de Hacienda y Crédito Público.
+Los trámites iniciados ante el Registro de Obligaciones y Empréstitos de Entidades y Municipios, con anterioridad a la entrada en vigor del Registro Público Único, se llevarán a cabo con de conformidad a las disposiciones vigentes a la fecha de inicio del trámite.
+Las referencias al Registro de Obligaciones y Empréstitos de Entidades y Municipios en las leyes y disposiciones administrativas, así como en cualquier otro acto jurídico, se entenderán hechas al Registro Público Único.

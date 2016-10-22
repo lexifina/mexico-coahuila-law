@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Todos los empréstitos, financiamientos, créditos, garantías, avales y en general cualquier acto jurídico, principal o accesorio, en materia de deuda pública que hayan sido celebrados con anterioridad a la fecha de entrada en vigor de la presente, se regirán por las leyes que estaban vigentes en su fecha de celebración.
