@@ -63,15 +63,15 @@ i) Los demás que el Congreso del Estado determine según las condiciones territ
 4. Aprobar, con arreglo a la ley, las concesiones a los particulares para que éstos presten los servicios públicos municipales.
 V. En materia de hacienda pública municipal:
 1. Administrar libremente su hacienda y controlar la aplicación del presupuesto de egresos del municipio, estableciendo un órgano de funciones de control y evaluación del gasto público municipal.
-(REFORMADO, P.O. 15 DE JUNIO DE 2007)
-2. Discutir, analizar y someter a la aprobación del Congreso del Estado, a más tardar el 31 de octubre de cada año, la iniciativa de Ley de Ingresos correspondiente a cada ejercicio fiscal.
+(REFORMADO, P.O. 2 DE DICIEMBRE DE 2016)
+2. Discutir, analizar y someter a la aprobación del Congreso del Estado, a más tardar el 15 de octubre de cada año, la iniciativa de Ley de Ingresos correspondiente a cada ejercicio fiscal.
 3. Discutir y analizar el Presupuesto de Egresos del Municipio y aprobarlo a más tardar el día 31 de diciembre del año anterior a su ejercicio y disponer su publicación en el Periódico Oficial del Gobierno del Estado y difundirlo por los medios más amplios de que se disponga.
 4. Coordinar, supervisar y vigilar con toda oportunidad los ingresos municipales.
 5. Enviar al Congreso del Estado para su estudio y aprobación, los proyectos de contratación de créditos que afecten los ingresos de la administración municipal.
 6. Aprobar los estados financieros mensuales que presente el tesorero municipal y publicarlos en el Periódico Oficial del Estado, cada tres meses.
 7. Presentar al Congreso del Estado la cuenta pública de la hacienda municipal, integrada por los informes trimestrales de origen y aplicación de los recursos públicos, mismos que deberán ser presentados dentro de los quince días siguientes al término del trimestre que corresponda; asimismo verificar la presentación de la cuenta pública del sector paramunicipal.
-(REFORMADO, P.O. 15 DE JUNIO DE 2007)
-8. Proponer al Congreso del Estado, a más tardar el 31 de octubre de cada año, las cuotas y tarifas aplicables a impuestos, derechos, contribuciones de mejoras y las tablas de valores unitarios de suelo y construcciones que sirvan de base para el cobro de las contribuciones sobre la propiedad inmobiliaria, en los términos de las leyes fiscales y conforme a los principios de equidad, proporcionalidad y capacidad contributiva.
+(REFORMADO, P.O. 2 DE DICIEMBRE DE 2016)
+8. Proponer al Congreso del Estado a más tardar el 15 de octubre de cada año, las cuotas y tarifas aplicables a impuestos, derechos, contribuciones de mejoras y las tablas de valores unitarios de suelo y construcciones que sirvan de base para el cobro de las contribuciones sobre la propiedad inmobiliaria, en los términos de las leyes fiscales y conforme a los principios de equidad, proporcionalidad y capacidad contributiva.
 9. Determinar la forma en que el tesorero y demás servidores públicos que manejen caudales públicos municipales, deban caucionar suficientemente su manejo.
 10. Aceptar herencias, legados o donaciones que se hagan al Municipio, siempre que no sean onerosas; en caso contrario solicitar autorización al Congreso para aceptarlas.
 11. Aprobar los movimientos de altas y bajas en el inventario de bienes muebles e inmuebles de propiedad municipal.
