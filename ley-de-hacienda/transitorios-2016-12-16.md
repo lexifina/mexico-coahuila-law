@@ -1,0 +1,4 @@
+P.O. 16 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 714.- SE REFORMAN LOS ARTÍCULOS 79, LAS FRACCIONES VI Y VII DEL ARTÍCULO 81 Y 82; SE ADICIONAN LOS ARTÍCULOS 79-A, 79-B, 79-C, 79-D, 79-E, 79-F, 79-G Y 79-H, EL SEGUNDO PÁRRAFO AL ARTÍCULO 80 Y LOS ARTÍCULOS 82-A, 82-B Y 82-C, DE LA LEY DE HACIENDA PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO PRIMERO.- Publíquese en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

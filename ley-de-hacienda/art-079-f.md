@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2016)
+ARTICULO 79-F.- La inscripción de títulos de propiedad, de bienes o derechos que modifiquen, aclaren o disminuyan el capital y sólo sean consecuencia legal de contratos que causaron derechos de registro y se otorguen por las mismas partes que figuran en la primera escritura, sin aumentar el capital ni transferir derechos, $71.00 (SETENTA Y UN PESOS 00/100 M.N.) por hoja.

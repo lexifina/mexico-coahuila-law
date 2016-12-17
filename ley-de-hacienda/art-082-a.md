@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2016)
+ARTICULO 82-A.- La inscripción de créditos de cualquier clase, hipotecarios, prendarios, refaccionarios, de habilitación o avío y otros, otorgados por instituciones de crédito, agrupaciones financieras o particulares, si el valor excede de $300,000.00 (TRESCIENTOS MIL PESOS 00/100 M.N.), adicionalmente se pagará por lo que exceda de dicha cantidad, el 6 al millar.
