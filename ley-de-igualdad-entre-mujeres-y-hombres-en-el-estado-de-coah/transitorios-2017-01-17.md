@@ -1,0 +1,4 @@
+P.O. 17 DE ENERO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO 613.- SE AGREGA LA FRACCIÓN V AL ARTÍCULO 16, Y SE RECORRE EL V AL (SIC) VI; SE REFORMA EL ARTÍCULO 17 EN SUS FRACCIONES VIII, IX, XI Y SE AGREGAN LAS FRACCIONES XIV Y XV, Y SE REFORMA EL ARTÍCULO 29 EN SU FRACCIÓN X DE LA LEY DE IGUALDAD ENTRE MUJERES Y HOMBRES DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación (sic) el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente decreto.
