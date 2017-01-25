@@ -1,6 +1,0 @@
-(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2014)
-ARTÍCULO 221-c.- Al ascendiente, descendiente o pariente colateral hasta el cuarto grado de un menor de dieciséis años o incapaz, o al que tenga relación familiar con dicho menor o incapaz, o con uno de los ascendientes o parientes referidos, sin causa justificada, lo sustraiga, retenga u oculte de quien tenga la guarda, custodia o tutela del menor o incapaz de hecho o de derecho, se le impondrá de un año a cinco años de prisión y de diez a cincuenta días multa. Además de las sanciones señaladas, se le privará o suspenderá de los derechos de patria potestad, tutela o custodia, según el caso.
-En estos casos el Ministerio Público o la autoridad judicial dictarán las medidas pertinentes para salvaguardar la integridad física o psíquica del menor o incapaz sustraído, retenido u ocultado.
-Si el activo devuelve al menor o incapaz dentro de los tres días siguientes a la sustracción, retención u ocultamiento, la punibilidad aplicable será de un tercio del mínimo a un tercio del máximo de las sanciones señaladas.
-La punibilidad prevista en este artículo se aplicará siempre que el hecho no constituya otro delito de mayor gravedad.
-Este delito se perseguirá por querella de quien tenga la guarda, custodia o tutela del menor o incapaz de hecho o de derecho.

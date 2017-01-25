@@ -1,1 +1,0 @@
-Artículo 240-a.- (DEROGADO, P.O. 3 DE JUNIO DE 2011)

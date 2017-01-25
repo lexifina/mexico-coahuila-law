@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 30 DE MAYO DE 2018)
-Artículo 262 Ter.- A quien autorice la ejecución de construcciones susceptibles de ser ocupadas por personas que se ubiquen en zonas de riesgo de conformidad con lo establecido en la Ley General de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano, así como la Ley General de Protección Civil, el Código Territorial para el Estado y los Municipios de Guanajuato, se le impondrá una pena de cinco a diez años de prisión y de cien a mil días multa.
