@@ -1,0 +1,1 @@
+Artículo 240-c.- (DEROGADO, P.O. 3 DE JUNIO DE 2011)

@@ -1,0 +1,1 @@
+Artículo Segundo.- Se abroga el Código Penal para el Estado de Guanajuato, contenido en el decreto número 85 ochenta y cinco, expedido por la Quincuagésima Legislatura del H. Congreso del Estado, publicado en el Periódico Oficial del Gobierno del Estado número 36 treinta y seis de fecha 4 cuatro de mayo de 1978 mil novecientos setenta y ocho.

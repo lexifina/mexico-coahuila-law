@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE NOVIEMBRE DE 2013)
+Artículo 262-b.- Si se suspende el ocultamiento de manera espontánea dentro de las setenta y dos horas de haberse realizado, la pena privativa de libertad será de uno a cinco años de prisión y multa de cien a quinientos días, destitución del empleo cargo o comisión públicos e inhabilitación para desempeñar otro por el mismo término de la pena privativa de libertad impuesta.

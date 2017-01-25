@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE JUNIO DE 2019)
+Artículo 210-a.- No se considerará delito de daños cuando con motivo del tránsito de vehículos automotores, se produzcan daños a la propiedad, siempre que se cuente con seguro para responder de los mismos, y que el conductor o conductores involucrados no se encuentren bajo el influjo de bebidas alcohólicas, estupefacientes, psicotrópicos u otras sustancias que produzcan efectos similares, auxilien a la persona afectada, y no se den a la fuga.

@@ -1,0 +1,4 @@
+P.O. 3 DE SEPTIEMBRE DE 2010.
+DECRETO NÚMERO 82, POR EL QUE SE ADICIONA EL ARTÍCULO 156 CON UN PÁRRAFO SEGUNDO DEL CÓDIGO PENAL PARA EL ESTADO DE GUANAJUATO.
+Artículo Primero. El presente decreto entrará en vigor el cuarto día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.
+Artículo Segundo. Para los efectos de lo establecido en los artículos 14 de la Constitución Política de los Estados Unidos Mexicanos, 2 de la Constitución Política para el Estado de Guanajuato, en relación con el párrafo segundo del artículo 156 que se adiciona con el presente Decreto, el Ejecutivo, por conducto de la Secretaria de Seguridad Pública, reducirá de oficio la pena de forma proporcional a la establecida en la sentencia ejecutoria correspondiente. No serán tomados en cuenta los elementos subjetivos y normativos para aplicar la reducción conducente.
