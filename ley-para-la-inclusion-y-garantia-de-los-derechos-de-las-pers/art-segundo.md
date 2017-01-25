@@ -1,0 +1,19 @@
+ARTÍCULO SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente decreto.
+DADO en la Ciudad de Saltillo, Coahuila de Zaragoza, a los veinte días del mes de diciembre del año dos mil dieciséis.
+DIPUTADO PRESIDENTE
+JAVIER DE JESÚS RODRÍGUEZ MENDOZA
+(RÚBRICA)
+DIPUTADA SECRETARIA
+SONIA VILLAREAL PÉREZ
+(RÚBRICA)
+DIPUTADA SECRETARIA
+GEORGINA CANO TORRALVA
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 23 de enero de 2017
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+RUBÉN IGNACIO MOREIRA VALDEZ
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+VÍCTOR MANUEL ZAMORA RODRÍGUEZ
+(RÚBRICA)
