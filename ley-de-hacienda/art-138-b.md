@@ -1,4 +1,3 @@
-(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2015)
+(REFORMADO, P.O. 17 DE MARZO DE 2017)
 SUJETO
-ARTICULO 138-B.- Son sujeto de este derecho, las personas físicas o morales que soliciten los servicios mencionados en el artículo anterior.
-Son solidariamente responsables del pago de este derecho los constructores y contratistas que realicen obras relativas al objeto de este derecho.
+ARTÍCULO 138-B.- Son sujeto de este derecho, las personas que soliciten los servicios que se establecen en el artículo que antecede.
