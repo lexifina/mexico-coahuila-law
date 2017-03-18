@@ -15,7 +15,8 @@ XII. Autorizar la creación de comités o subcomités técnicos especializados, 
 XIII. Dictar las disposiciones que normen la contratación, remuneración y prestaciones, que deban otorgarse a los servidores públicos de la Comisión, las que en todo caso deberán sujetarse a los tabuladores autorizados por el Gobierno del Estado;
 XIV. Vigilar que los acuerdos de coordinación que se celebren con las dependencias o entidades federales, dentro de su respectivo ámbito de competencia, se lleven a cabo en el marco de los convenios respectivos;
 XV. Analizar y aprobar en su caso, los informes periódicos que rinda quien sea titular de la Dirección General;
-XVI. Establecer los lineamientos que debe cumplir la Comisión en materia de acceso a la información, en términos de la Ley de Acceso a la Información Pública y Protección de Datos Personales del Estado de Coahuila de Zaragoza y demás disposiciones en la materia;
+(REFORMADA, P.O. 17 DE MARZO DE 2017)
+XVI. Establecer los lineamientos que debe cumplir la Comisión en materia de acceso a la información, en términos de la Ley de Acceso a la Información Pública y Protección de Datos Personales para el Estado de Coahuila de Zaragoza y demás disposiciones en la materia;
 XVII. Procurar el incremento del patrimonio de la Comisión y vigilar su administración;
 XVIII. Vigilar la aplicación correcta de los recursos ordinarios y extraordinarios, que por cualquier título obtenga la Comisión; y
 XIX. Las demás que le otorguen otras disposiciones aplicables.
