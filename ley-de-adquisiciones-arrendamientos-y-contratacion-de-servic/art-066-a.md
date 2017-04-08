@@ -5,7 +5,9 @@ II. La dependencia o entidad deberá entregar los documentos y la información q
 III. La solicitud de cotización se formulará a las personas físicas y morales que tengan capacidad legal, técnica y económica para cumplir con el contrato o pedido que en su caso se les asigne;
 IV. Para la dependencia o entidad será opcional celebrar una junta de aclaraciones para proporcionar mayor información o aclarar las dudas de los participantes;
 V. Las cotizaciones y demás documentación que haya solicitado la dependencia o entidad, podrán recibirse a través del servicio postal o de mensajería, por medios remotos de comunicación electrónica o en el domicilio de la dependencia o entidad solicitante;
-VI. La dependencia o entidad deberá elaborar cuadros técnicos y económicos comparativos de las cotizaciones recibidas, donde se precise el resultado de la evaluación realizada;
-VII. La dependencia o entidad podrá asignar con solo una propuesta económica solvente el contrato o pedido respectivo, previa comprobación de que los precios propuestos resultan aceptables de acuerdo a los precios existentes en el mercado;
+(REFORMADA, P.O. 7 DE ABRIL DE 2017)
+VI. La dependencia o entidad deberá elaborar cuadros técnicos y económicos comparativos de las cotizaciones recibidas, donde se precise el resultado de la evaluación realizada; y en base a éstos, elaborar el dictamen de fallo, o a falta de este último, dejar constancia escrita en que se sustente la adjudicación;
+(REFORMADA, P.O. 7 DE ABRIL DE 2017)
+VII. La dependencia o entidad podrá asignar el contrato o pedido respectivo, a la oferta cuyo precio sea el más bajo, con solo una propuesta económica solvente, una vez cumplidos los requisitos técnicos, legales y económicos solicitados, previa comprobación de que los precios propuestos resultan aceptables de acuerdo a los precios existentes en el mercado;
 VIII. La dependencia o entidad deberá formular el contrato o pedido respectivo, de conformidad con sus políticas, bases y lineamientos, mismo que debe reunir los requisitos mínimos del artículo 68 de la presente Ley, y
 IX. Las garantías son exigibles en los términos previstos en los artículos 71 y 72 del presente ordenamiento legal.

@@ -1,0 +1,9 @@
+P.O. 7 DE ABRIL DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 782.- SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE ADQUISICIONES, ARRENDAMIENTOS Y CONTRATACIÓN DE SERVICIOS PARA EL ESTADO DE COAHUILA DE ZARAGOZA; ASÍ COMO TAMBIÉN, SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+Las disposiciones relativas al uso de la modalidad de subasta electrónica inversa, serán aplicables dentro de los ciento ochenta días después de la entrada en vigor del presente Decreto.
+SEGUNDO.- Los proveedores y contratistas inscritos en el padrón de proveedores y padrón de contratistas, deberán actualizar la información y documentación a que se refiere el presente decreto en el término que establezca la autoridad competente.
+TERCERO.- La Secretaría de Fiscalización y Rendición de Cuentas, la Secretaría de Infraestructura y Transporte, la Secretaría de Finanzas y demás dependencias competentes, deberán llevar a cabo todas las acciones que resulten necesarias para la implementación de lo establecido en la presente reforma.
+CUARTO.- Los procedimientos de contratación que se encuentren en curso a la entrada en vigor del presente decreto, serán tramitados hasta su conclusión de conformidad con las disposiciones vigentes al momento en que fueron iniciados.
+QUINTO.- La Secretaría de Fiscalización y Rendición de Cuentas, dentro de los 30 días hábiles siguientes a la publicación de este Decreto, deberá emitir los lineamientos para regular la participación de los testigos sociales.
+SEXTO.- Se derogan todas las disposiciones que se opongan al presente Decreto.

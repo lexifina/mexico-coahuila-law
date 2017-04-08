@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 7 DE ABRIL DE 2017)
+Artículo 43-A.- La licitación pública conforme a los medios que se utilicen, podrá ser:
+I. Presencial, en la cual los licitantes exclusivamente podrán presentar sus proposiciones en forma documental y por escrito, en sobre cerrado, durante el acto de presentación y apertura de proposiciones, o bien, si así se prevé en la convocatoria a la licitación, mediante el uso del servicio postal o de mensajería.
+La o las juntas de aclaraciones, el acto de presentación y apertura de proposiciones y el acto de fallo, se realizarán de manera presencial, a los cuales podrán asistir los licitantes, sin perjuicio de que el fallo pueda notificarse por escrito conforme a lo dispuesto por el artículo 60 de esta Ley;
+II. Electrónica, en la cual exclusivamente se permitirá la participación de los licitantes a través del medio de difusión electrónica que establezca el Órgano de Control comunicaciones producirán los efectos que señala el artículo 43 antepenúltimo párrafo de esta Ley.
+La o las juntas de aclaraciones, el acto de presentación y apertura de proposiciones y el acto de fallo, sólo se realizarán a través del medio de difusión electrónica que establezca el Órgano de Control y sin la presencia de los licitantes en dichos actos, y
+III. Mixta, en la cual los licitantes, a su elección, podrán participar en forma presencial o electrónica en la o las juntas de aclaraciones, el acto de presentación y apertura de proposiciones y el acto de fallo.
