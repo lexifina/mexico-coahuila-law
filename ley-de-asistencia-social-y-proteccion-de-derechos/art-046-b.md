@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE JUNIO DE 2017)
+Artículo 46-B. El Centro de Investigación y Atención del Autismo, tendrá por objeto brindar atención y seguimiento a las personas diagnosticadas con trastornos del espectro autista, así como la investigación de los mecanismos biológicos y los factores predisponentes a la enfermedad, para brindar una atención profesional y altamente especializada a dichas personas y a sus familias.
