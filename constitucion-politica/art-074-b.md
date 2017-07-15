@@ -1,11 +1,16 @@
 (ADICIONADO, P.O. 11 DE NOVIEMBRE DE 2014)
 Artículo 74-B.- La Auditoría Superior del Estado es competente para:
-(REFORMADA, P.O. 27 DE MAYO DE 2016)
-I. Fiscalizar en forma posterior las cuentas públicas y los informes de avance de gestión financiera de las entidades, en los términos que dicta esta Constitución y las leyes.
+(REFORMADO PRIMER PÁRRAFO, P.O. 14 DE JULIO DE 2017)
+I. Fiscalizar en forma posterior los ingresos, egresos y deuda; el manejo, la custodia y la aplicación de fondos y recursos de los Poderes del Estado y de los entes públicos estatales y municipales, así como realizar auditorías sobre el desempeño en el cumplimiento de los objetivos contenidos en los planes y programas estatales y municipales, a través de los informes que se rendirán en los términos que dispongan esta Constitución y las leyes. Fiscalizará además, de manera coordinada con las autoridades de la Federación, las participaciones federales asignadas al Estado y los municipios.
+(REFORMADO, P.O. 27 DE MAYO DE 2016)
 No obstante lo anterior, la Auditoría Superior del Estado podrá iniciar el proceso de fiscalización durante el ejercicio fiscal en curso;
-II. Investigar los actos u omisiones que impliquen alguna irregularidad o conducta ilícita en la gestión financiera de las entidades fiscalizadas; y efectuar visitas domiciliarias para exigir la exhibición de libros, documentos y demás información indispensables para la realización de sus investigaciones, sujetándose a las formalidades establecidas en las leyes.
-III. Determinar los daños y perjuicios que afecten a la hacienda pública o al patrimonio de las entidades; y
-IV. Fincar directamente a los responsables, las indemnizaciones y sanciones pecuniarias correspondientes, así como promover ante las autoridades competentes el fincamiento de otras responsabilidades.
+(ADICIONADO, P.O. 14 DE JULIO DE 2017)
+Los informes de auditoría de la Auditoría Superior del Estado tienen carácter público.
+(REFORMADA, P.O. 14 DE JULIO DE 2017)
+II. Investigar los actos u omisiones que impliquen alguna irregularidad o conducta ilícita en el ingreso, egreso, manejo, custodia y aplicación de fondos y recursos estatales, y efectuar visitas domiciliarias, únicamente para exigir la exhibición de libros, papeles o archivos indispensables para la realización de sus investigaciones, sujetándose a las leyes y a las formalidades establecidas para los cateos.
+(REFORMADA, P.O. 14 DE JULIO DE 2017)
+III. Derivado de sus investigaciones, promover las responsabilidades que sean procedentes ante el Tribunal de Justicia Administrativa de Coahuila de Zaragoza y la Fiscalía Especializada en Delitos por Hechos de Corrupción de la Fiscalía General de Justicia del Estado, para la imposición de las sanciones que correspondan a los servidores públicos estatales y municipales y, en su caso, a los particulares, en los términos de esta Constitución y las leyes.
+IV. (DEROGADA, P.O. 14 DE JULIO DE 2017)
 (REFORMADO, P.O. 27 DE MAYO DE 2016)
 La Auditoría Superior del Estado podrá solicitar y revisar, de manera casuística y concreta, información de ejercicios anteriores al de la cuenta pública en revisión, sin que por este motivo se entienda, para todos los efectos legales, abierta nuevamente la cuenta pública del ejercicio al que pertenece la información solicitada, exclusivamente cuando el programa, proyecto o la erogación, contenidos en el presupuesto en revisión abarque para su ejecución y pago diversos ejercicios fiscales o se trate de revisiones sobre el cumplimiento de los objetivos de los planes y programas. Las observaciones y recomendaciones que, respectivamente, la Auditoría Superior del Estado emita, sólo podrán referirse a la administración de los recursos contenidos en la cuenta pública en revisión.
 (REFORMADO, P.O. 27 DE MAYO DE 2016)
