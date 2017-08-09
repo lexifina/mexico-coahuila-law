@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 13 DE AGOSTO DE 2004)
+Artículo 175-b.- A quien simule un secuestro con la pretensión de obtener rescate, conseguir un beneficio de cualquier naturaleza, obligar a la autoridad o a un particular a que realice o deje de realizar una función o acto o causar un daño o perjuicio a cualquier persona, sin importar los medios empleados ni la condición simulada de secuestrador o secuestrado, se le aplicará de cinco a diez años de prisión y de ciento cincuenta a cuatrocientos días multa.
+Cuando quienes fingiendo la condición de secuestrador o secuestrado obtengan sus pretensiones, la sanción podrá agravarse de una mitad del mínimo a una mitad del máximo de las señaladas en el párrafo anterior.
+Se requerirá querella cuando el delito se cometa entre cónyuges, concubinos, ascendiente y descendiente, adoptante y adoptado, tutor y pupilo, madrastra o padrastro e hijastro o bien entre hermanos.

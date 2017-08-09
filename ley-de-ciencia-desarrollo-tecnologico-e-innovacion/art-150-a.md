@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE ABRIL DE 2018)
+Artículo 150-a.- Al responsable de lesiones en contra de servidores públicos que desempeñen funciones de seguridad pública, de investigación de delitos, de procuración o administración de justicia en materia penal, de ejecución de penas, de su cónyuge o de sus parientes en línea recta o colateral hasta el cuarto grado o con quien viva en concubinato, se aumentará la punibilidad de la mitad del mínimo a la mitad del máximo de la que correspondería de acuerdo con los artículos anteriores.

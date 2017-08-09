@@ -1,0 +1,1 @@
+Artículo Quinto.- Se deroga el penúltimo y último párrafos del artículo 183 ciento ochenta y tres del Código de Procedimientos Penales para el Estado de Guanajuato. Toda referencia al catálogo de delitos graves que alguna disposición realice se entenderá que se hace al artículo 11 once de este Código.
