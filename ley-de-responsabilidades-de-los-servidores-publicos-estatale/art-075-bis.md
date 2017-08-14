@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2014)
-ARTICULO 75 BIS.- Los Poderes Legislativo y Judicial, municipios y organismos autónomos, deberán informar mensualmente al Órgano Estatal de Control de los movimientos de altas, bajas, licencias e incapacidades respecto de los servidores públicos obligados a presentar declaración de situación patrimonial de conformidad con el artículo anterior.
-La Secretaría de Finanzas y titulares de las entidades u organismos paraestatales y desconcentrados, deberán informar mensualmente al Órgano Estatal de Control sobre los movimientos de altas, bajas, licencias, incapacidades y cambios de adscripción de los servidores públicos.
+ARTICULO 75 BIS.- (DEROGADO, P.O. 11 DE AGOSTO DE 2017)
