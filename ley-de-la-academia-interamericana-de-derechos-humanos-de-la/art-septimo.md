@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- La Academia IDH elaborará e implementará los programas de posgrado en materia de derechos humanos de la Universidad Autónoma de Coahuila, los cuales serán coordinados exclusivamente por el Centro de Posgrado y Capacitación conforme a la normatividad universitaria.

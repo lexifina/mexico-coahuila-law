@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- En el Convenio que se suscriba por la UAdeC y el Gobierno Estatal para la asignación del Presupuesto para la Academia IDH, las partidas correspondientes tendrán el carácter de irreductibles para garantizar la organización y el funcionamiento de su objeto.
