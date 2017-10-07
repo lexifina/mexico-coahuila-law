@@ -1,0 +1,3 @@
+P.O. 6 DE OCTUBRE DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO 956.- SE REFORMA EL ARTÍCULO 82 DE LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
