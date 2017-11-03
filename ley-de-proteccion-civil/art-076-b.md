@@ -7,6 +7,7 @@ IV. Coordinarse bajo el mando de las autoridades en caso de un riesgo, emergenci
 V. Proporcionar información sobre los productos químicos empleados en procesos de producción;
 VI. Aprovechar la sinergia que resulta del trabajo conjunto, para ampliar la infraestructura disponible y la capacidad de respuesta;
 VII. Establecer o renovar los planes de respuesta a emergencias;
-VII (SIC). Cooperar en la planeación de emergencias en la comunidad y ayudar en la elaboración de los planes de las empresas integradas al comité;
+(F. DE E., P.O. 3 DE NOVIEMBRE DE 2017)
+VIII. Cooperar en la planeación de emergencias en la comunidad y ayudar en la elaboración de los planes de las empresas integradas al comité;
 IX. Involucrar a la comunidad en la planeación de emergencias, y
 X. Realizar simulacros con la participación de autoridades de protección civil, los cuerpos (sic) emergencia y la comunidad.
