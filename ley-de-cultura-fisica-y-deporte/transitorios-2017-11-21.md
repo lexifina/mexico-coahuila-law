@@ -1,0 +1,4 @@
+P.O. 21 DE NOVIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 984.- SE ADICIONA UN NUEVO CONTENIDO A LA FRACCIÓN XIV; Y SE RECORRE EL ACTUAL A LA SIGUIENTE FRACCIÓN, REALIZANDO LO PROPIO CON LAS ULTERIORES, CREANDO AL FINAL LA FRACCIÓN XVII, DEL ARTÍCULO 7 DE LA LEY DE CULTURA FÍSICA Y DEPORTE DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrara en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Publíquese el presente Decreto en el Periódico Oficial del Gobierno del Estado.

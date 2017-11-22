@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 21 DE NOVIEMBRE DE 2017)
+ARTICULO 5° BIS 2.- Las licencias, autorizaciones o permisos establecidos en la presente ley, otorgados por la dependencia estatal o municipal, entidad u organismo competente, se entenderán refrendados, renovados o revalidados con la presentación del pago de los derechos correspondientes.
+La autoridad competente contará con un plazo de tres meses a partir del refrendo, renovación o revalidación correspondiente para verificar el cumplimiento de los requisitos establecidos en las disposiciones aplicables para su otorgamiento. En caso de incumplimiento, se otorgará un plazo de cinco días hábiles para subsanarlo, salvo que en otra disposición legal o administrativa de carácter general se establezca otro plazo para algún supuesto en particular.
+Transcurrido el plazo señalado en el párrafo anterior sin que se haya subsanado el incumplimiento, procederá la cancelación de la licencia, autorización o permiso correspondiente.
+CAPITULO II
+DE LA DISTRIBUCION Y COORDINACION DE COMPETENCIAS
+SECCION I
+De las Atribuciones de las Autoridades

@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 21 DE NOVIEMBRE DE 2017)
+Artículo 245 bis 2. Las autorizaciones establecidas en la presente ley, otorgadas por la autoridad sanitaria competente, se entenderán refrendadas, renovadas o revalidadas con la presentación del pago de los derechos correspondientes.
+La autoridad sanitaria competente contará con un plazo de tres meses a partir del refrendo, renovación o revalidación correspondiente para verificar el cumplimiento de los requisitos establecidos en las disposiciones aplicables para su otorgamiento. En caso de incumplimiento, se otorgará un plazo de cinco días hábiles para subsanarlo, salvo que en otra disposición legal o administrativa de carácter general se establezca otro plazo para algún supuesto en particular.
+Transcurrido el plazo señalado en el párrafo anterior sin que se haya subsanado el incumplimiento, procederá la cancelación de la autorización correspondiente.

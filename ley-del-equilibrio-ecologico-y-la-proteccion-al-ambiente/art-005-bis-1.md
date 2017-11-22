@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 21 DE NOVIEMBRE DE 2017)
+ARTICULO 5° BIS 1.- En los trámites y procedimientos establecidos en la presente ley, la dependencia estatal o municipal, entidad u organismo competente, deberá resolver lo conducente en un plazo no mayor a treinta días hábiles, salvo que en otra disposición legal o administrativa de carácter general se establezca otro plazo para algún supuesto en particular.
+Transcurrido el plazo aplicable, sin que se haya dictado resolución por la autoridad competente, ésta se entenderá en sentido positivo al promovente, a menos que en otra disposición legal o administrativa se prevea lo contrario.
+A petición del interesado, se deberá expedir constancia de tal circunstancia dentro de los dos días hábiles siguientes a la presentación de la solicitud respectiva ante quien deba resolver.
