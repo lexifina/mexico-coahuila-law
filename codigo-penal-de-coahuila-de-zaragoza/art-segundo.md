@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. El presente Decreto entrará en vigor a los treinta días naturales siguientes contados a partir del día posterior al de su publicación en el Periódico Oficial del Gobierno del Estado.
