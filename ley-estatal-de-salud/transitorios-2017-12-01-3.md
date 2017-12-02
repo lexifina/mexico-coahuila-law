@@ -1,0 +1,3 @@
+P.O. 1 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO 1012.- SE REFORMA Y ADICIONA LA FRACCIÓN IX RECORRIÉNDOSE LAS ULTERIORES DEL ARTÍCULO 4°, Y SE ADICIONA UN PÁRRAFO A LA FRACCIÓN IV Y UNA FRACCIÓN V AL ARTÍCULO 94 DE LA LEY ESTATAL DE SALUD".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
