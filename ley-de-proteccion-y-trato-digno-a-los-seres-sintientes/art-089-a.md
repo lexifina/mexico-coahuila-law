@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2017)
+Artículo 89 A.- Los Ayuntamientos que incumplan con lo dispuesto en las fracciones II, VII, X y XI del artículo 14 de esta Ley, así como las demás obligaciones señaladas en la misma, serán sancionados de conformidad con lo previsto en la legislación en materia de responsabilidades de los servidores públicos, y las demás disposiciones aplicables.
+Las responsabilidades administrativas se fincarán, a quienes directamente hayan ejecutado los actos o incurran en las omisiones que las originaron y, subsidiariamente, a los que, por la naturaleza de sus funciones, hayan omitido la revisión o autorizado tales actos por causas que impliquen dolo, culpa, mala fe o negligencia por parte de los mismos.
