@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2016)
-ARTICULO 79-D.- Los contratos mercantiles en que medie condición suspensiva, resolutoria, reserva de dominio o cualquier otra modalidad que dé lugar a una inscripción complementaria para su perfeccionamiento, lo que resulte mayor entre el 25% de los derechos que se hayan causado por la primera inscripción o $71.00 (SETENTA Y UN PESOS 00/100 M.N.), por hoja.
+ARTICULO 79-D.- (DEROGADO, P.O. 19 DE DICIEMBRE DE 2017)

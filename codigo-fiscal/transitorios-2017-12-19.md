@@ -1,0 +1,5 @@
+P.O. 19 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO 1156.- SE REFORMA LA FRACCIÓN III DEL ARTÍCULO 117; SE ADICIONAN: LOS ARTÍCULOS 42-A Y 42-B, DEL CÓDIGO FISCAL PARA EL ESTADO DE COAHUILA DE ZARAGOZA, CONTENIDO EN EL DECRETO NO. 157, PUBLICADA EN EL PERIÓDICO OFICIAL DEL GOBIERNO DEL ESTADO NO. 1 DE FECHA 02 DE ENERO DE 2014".]
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día primero de enero de dos mil dieciocho.
+ARTICULO SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+ARTICULO TERCERO.- Publíquese en el Periódico Oficial del Gobierno del Estado.

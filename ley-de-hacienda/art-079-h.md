@@ -11,7 +11,8 @@ VI. La expedición de certificados o certificaciones relativos a las constancias
 3. Constancia de historial registral $498.00 (CUATROCIENTOS NOVENTA Y OCHO PESOS 00/100 M.N.).
 4. Certificado de registro, $256.00 (DOSCIENTOS CINCUENTA Y SEIS PESOS 00/100 M.N.).
 5. Otros certificados y certificaciones $256.00 (DOSCIENTOS CINCUENTA Y SEIS PESOS 00/100 M.N.).
-VII. La cancelación de inscripciones en el Registro causará el 10% de los derechos que se causaron por su inscripción, sin que pueda ser inferior a $79.00 (SETENTA Y NUEVE PESOS 00/100 M.N.);
-En caso de que no se conozca el importe de los derechos pagados para su inscripción, se causará el 10% de los que corresponderían por su inscripción.
+(REFORMADA, P.O. 19 DE DICIEMBRE DE 2017)
+VII. La cancelación de inscripciones en el Registro causará el 10% de los derechos que se causaron por su inscripción.
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 19 DE DICIEMBRE DE 2017)
 VIII. La inscripción de declaración unilateral de voluntad en que se contenga la lotificación de un fraccionamiento, por lote $58.00 (CINCUENTA Y OCHO PESOS 00/100 M.N.); y,
-IX. Por otros no especificados, $255.00 (DOSCIENTOS CINCUENTA Y CINCO PESOS 00/100 M.N.).
+IX. (DEROGADA, P.O. 19 DE DICIEMBRE DE 2017)
