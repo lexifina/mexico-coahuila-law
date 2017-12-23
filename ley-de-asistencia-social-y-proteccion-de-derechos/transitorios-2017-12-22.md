@@ -1,0 +1,3 @@
+P.O. 22 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO 1045.- SE ADICIONA EL INCISO D) DE LA FRACCIÓN II AL ARTÍCULO 6, DE LA LEY DE ASISTENCIA SOCIAL Y PROTECCIÓN DE DERECHOS DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación (sic) el Periódico Oficial del Gobierno del Estado.
