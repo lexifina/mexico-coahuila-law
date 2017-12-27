@@ -1,7 +1,7 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 8 DE MARZO DE 2016)
 ARTICULO 82 BIS.- El Ejecutivo del Estado, por conducto de la Secretaría, emitirá la declaratoria para el establecimiento de zonas de restauración, debiendo elaborar previamente los estudios que justifiquen dicha solicitud.
-(REFORMADO, P.O. 8 DE MARZO DE 2016)
-Las declaratorias deberán publicarse en el Periódico Oficial del Gobierno del Estado. Así mismo, deberán ser inscritas, en el Registro Público que corresponda.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2017)
+Las declaratorias deberán publicarse en el Periódico Oficial del Gobierno del Estado. Así mismo, deberán ser inscritas, en el Instituto Registral y Catastral del Estado de Coahuila de Zaragoza que corresponda.
 (ADICIONADO, P.O. 15 DE DICIEMBRE DE 2006)
 Las declaratorias podrán comprender, de manera parcial o total, predios sujetos a cualquier régimen de propiedad, y expresarán:
 (REFORMADA, P.O. 8 DE MARZO DE 2016)
