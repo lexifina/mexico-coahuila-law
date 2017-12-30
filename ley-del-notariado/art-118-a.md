@@ -1,5 +1,5 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1996)
-ARTICULO 118-BIS.- Los titulares de las Notarías Públicas correspondientes al mismo Distrito notarial y al mismo domicilio dentro del municipio en que actúan, podrán asociarse por el tiempo que estimen conveniente.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1996) (REFORMADA SU NUMERACIÓN, P.O. 29 DE DICIEMBRE DE 2017)
+ARTICULO 118 A.- Los titulares de las Notarías Públicas correspondientes al mismo Distrito notarial y al mismo domicilio dentro del municipio en que actúan, podrán asociarse por el tiempo que estimen conveniente.
 Los notarios Asociados, que pueden ser hasta dos, podrán actuar indistintamente en un mismo Protocolo, que será de preferencia el del notario más antiguo y en caso de disolución del Convenio de Asociación, cada notario seguirá actuando en su propio Protocolo.
 Cada uno de los notarios Asociados tendrá la misma capacidad para actuar y usará su propio sello.
 Durante la vigencia del Convenio de Asociación, los Notarios Asociados se suplirán recíprocamente en sus faltas temporales. El Notario Asociado que continúe en funciones, podrá autorizar definitivamente los instrumentos autorizados preventivamente por el Notario suplido, así como expedir los testimonios correspondientes y cumplir los trámites subsecuentes que legalmente debiera realizar éste último.
