@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE ENERO DE 2018)
+ARTICULO 20 BIS.- Las instituciones y órganos del poder ejecutivo, legislativo, y judicial pertenecientes al orden estatal, expedirán sus manuales de sistemas de manejo ambiental, que tendrán por objeto el ser una herramienta que guie hacia la optimización de los recursos materiales y energéticos que se utilicen en el desempeño diario de sus funciones administrativas y operativas, con el fin de reducir costos ambientales y financieros.
