@@ -1,5 +1,0 @@
-P.O. 1 DE AGOSTO DE 2006.
-Artículo Primero.- Las presentes modificaciones al Código Penal para el Estado de Guanajuato, entrarán en vigencia el 12 doce de septiembre del año 2006 dos mil seis.
-Artículo Segundo.- Los derechos nacidos al amparo de la disposición a que se refería el artículo 57, fracción I, del Código Penal, quedarán a salvo para hacerse valer ante la autoridad que resulte competente.
-N. DE E. DEBIDO A SU IMPORTANCIA, SE TRANSCRIBE EL ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO NÚMERO 280.
-ARTÍCULO ÚNICO.- El presente Decreto entrará en vigencia el 12 doce de septiembre del año 2006 dos mil seis, excepción hecha de las modificaciones a la Ley Orgánica del Poder Ejecutivo para el Estado de Guanajuato, Ley Sobre el Sistema Estatal de Asistencia Social, Ley Orgánica del Ministerio Público del Estado de Guanajuato y Ley Orgánica del Poder Judicial del Estado de Guanajuato, que entrarán en vigencia el cuarto día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.

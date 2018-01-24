@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 26 DE ABRIL DE 2018)
-Artículo 141-a.-Al responsable de homicidio en contra de servidores públicos por motivo de sus funciones de seguridad pública, de investigación de delitos, de procuración o administración de justicia en materia penal, de ejecución de penas, de su cónyuge o de sus parientes en línea recta o colateral hasta el cuarto grado o con quien viva en concubinato, se le impondrá de treinta a sesenta años de prisión y de trescientos a seiscientos días multa.

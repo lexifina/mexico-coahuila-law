@@ -1,8 +1,20 @@
-Artículo Séptimo.- Quedan vigentes las disposiciones de carácter penal contenidas en otros ordenamientos, en todo lo que no se oponga a este Código.
-LA QUINCUAGÉSIMA OCTAVA LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE GUANAJUATO, DE CONFORMIDAD CON EL ARTICULO 58 DE LA CONSTITUCION POLÍTICA DEL ESTADO, REMITE AL EJECUTIVO DEL ESTADO EL PRESENTE DECRETO, PARA SU PROMULGACIÓN.- GUANAJUATO, GTO., A 24 DE OCTUBRE DEL AÑO 2001.- OMAR OCTAVIO CHAIRE CHAVERO.- DIPUTADO PRESIDENTE.- JESÚS DOMÍNGUEZ ARANDA.- DIPUTADO SECRETARIO.- ENRIQUE ORTIZ RIVAS.- DIPUTADO SECRETARIO.- RUBRICAS.
-Por lo tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento.
-Dado en la Residencia del Poder Ejecutivo del Estado en la Ciudad de Guanajuato, Gto., a los 29 veintinueve días del mes de Octubre del año 2001 dos mil uno.
-JUAN CARLOS ROMERO HICKS.
-EL SECRETARIO DE GOBIERNO.
-JUAN MANUEL OLIVA RAMÍREZ.
-N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CÓDIGO.
+Artículo Séptimo. Los convenios, contratos y demás actos jurídicos que el COECYT haya celebrado con anterioridad a la entrada en vigor del presente Decreto, deberán ser ratificados por la Junta de Gobierno del COECYT, sustituyéndolo en el cumplimiento de las obligaciones y el ejercicio de derechos que de ellos derive.
+DADO en el Salón de Sesiones del Congreso del Estado, en la Ciudad de Saltillo, Coahuila de Zaragoza, a los veintiocho días del mes de junio del año dos mil diecisiete.
+DIPUTADO PRESIDENTE
+SERGIO GARZA CASTILLO.
+(RÚBRICA)
+DIPUTADA SECRETARIA
+MARTHA HORTENSIA GARAY CADENA
+(RÚBRICA)
+DIPUTADA SECRETARIA
+OLGA LETICIA LARA RODRÍGUEZ
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 2 de agosto de 2017
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+RUBÉN IGNACIO MOREIRA VALDEZ
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+VÍCTOR MANUEL ZAMORA RODRÍGUEZ
+(RÚBRICA)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

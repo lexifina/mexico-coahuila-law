@@ -1,1 +1,2 @@
-Artículo Quinto.- Se deroga el penúltimo y último párrafos del artículo 183 ciento ochenta y tres del Código de Procedimientos Penales para el Estado de Guanajuato. Toda referencia al catálogo de delitos graves que alguna disposición realice se entenderá que se hace al artículo 11 once de este Código.
+Artículo Quinto. Los recursos humanos, financieros y materiales asignados y destinados a la fecha en que entre en vigor el presente Decreto, al COECYT, creado mediante el mismo, se reasignarán y pasarán a formar parte del COECYT que se crea mediante esta Ley.
+Los derechos que hubieren adquirido los trabajadores que se reasignan, serán respetados en todo (sic) sus términos.

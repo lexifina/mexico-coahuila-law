@@ -1,1 +1,1 @@
-Artículo Tercero.- Se deroga el artículo 81 ochenta y uno de la Ley de Fraccionamientos para los Municipios del Estado de Guanajuato.
+Artículo Tercero. Dentro de los seis meses siguientes a la entrada en vigor de este Decreto, el COECYT expedirá las bases de organización y funcionamiento del Sistema Estatal de Información sobre Investigación Científica, Desarrollo Tecnológico e Innovación, el Programa Especial de Innovación, Ciencia y Tecnología y su Estatuto Orgánico.
