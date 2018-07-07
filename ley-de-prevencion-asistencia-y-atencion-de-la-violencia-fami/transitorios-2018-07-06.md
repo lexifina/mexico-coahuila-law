@@ -1,0 +1,4 @@
+P.O. 6 DE JULIO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO 36.- SE REFORMAN LOS ARTICULOS 1, 2, 3, LA FRACCIÓN VI DEL ARTÍCULO 17, EL ARTÍCULO 20, LA FRACCIÓN VIII DEL ARTÍCULO 22 Y LA II DEL ARTÍCULO 32, LOS ARTÍCULOS 35 Y 38, LA FRACCIÓN II DEL ARTÍCULO 55, ASÍ COMO LOS ARTÍCULOS 6., 66 Y 77, DE LA LEY DE PREVENCIÓN, ASISTENCIA Y ATENCIÓN DE LA VIOLENCIA FAMILIAR DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Segundo.- En un plazo no mayor a cuarenta días, contados a partir de la entrada en vigor del presente Decreto, el Congreso del Estado realizará las adecuaciones a los ordenamientos que guardan relación con las reformas aquí planteadas, a fin de establecer la concordancia y la armonización correspondiente.
