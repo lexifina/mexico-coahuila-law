@@ -1,0 +1,3 @@
+P.O. 21 DE DICIEMBRE DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO 110.- SE MODIFICA EL CONTENIDO DEL SEGUNDO PÁRRAFO DEL ARTÍCULO 1; ASÍ COMO EL CONTENIDO DEL PRIMER PÁRRAFO DEL ARTÍCULO 8, EL TERCER PÁRRAFO DEL ARTÍCULO 9; Y, EL CONTENIDO DE LOS ARTÍCULOS 11, 16, 29, 30, 38 Y 39 DE LA LEY PARA EL DESARROLLO INTEGRAL DE LA JUVENTUD DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- Las presentes modificaciones a la Ley para el Desarrollo Integral de la Juventud del Estado de Coahuila de Zaragoza, entrarán en vigor el día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
