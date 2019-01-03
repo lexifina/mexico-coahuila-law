@@ -1,6 +1,7 @@
 (ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, P.O. 31 DE DICIEMBRE DE 2018)
 TERCERA PARTE
 DE LOS SERVICIOS CATASTRALES
+[N. DE E. PARA CONSULTAR LAS CUOTAS Y TARIFAS ACTUALIZADAS DEL PRESENTE ARTÍCULO VÉASE LA "INFORMACIÓN FISCAL SOBRE TARIFAS DE LAS CONTRIBUCIONES ESTABLECIDAS EN LA LEY DE HACIENDA PARA EL ESTADO DE COAHUILA DE ZARAGOZA, APLICABLES DURANTE EL EJERCICIO FISCAL 2019", PUBLICADA EN EL EXTRAORDINARIO SEGUNDA PARTE DEL P.O. DE 31 DE DICIEMBRE DE 2018.]
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
 ARTICULO 84-A.- Son objeto de estos Derechos, los Servicios Catastrales que presta el Instituto Registral y Catastral del Estado de Coahuila, por concepto de:
 I. Búsquedas a nombre de propietarios, poseedores, usufructuarios, herederos y entidades públicas relacionadas con la información catastral, geográfica y cartográfica, de inexistencia de registro, y en general de datos que formen parte del acervo catastral del Estado de Coahuila $250.00 (DOSCIENTOS CINCUENTA PESOS 00/100 M.N.) por cada predio.
