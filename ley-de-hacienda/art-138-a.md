@@ -1,13 +1,15 @@
-(REFORMADA SU DENOMINACIÓN, P.O. 17 DE MARZO DE 2017)
-SECCIÓN SEGUNDA
+(REFORMADA SU NUMERACIÓN, P.O. 31 DE DICIEMBRE DE 2018)
+SECCIÓN TERCERA
 POR SERVICIOS DE INFRAESTRUCTURA
-(REFORMADO, P.O. 17 DE MARZO DE 2017)
-ARTICULO 138-A.- Los servicios que presta la Secretaría de Infraestructura y Transporte, causarán los derechos siguientes:
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2018)
+ARTICULO 138-A.- Los servicios que presta la Secretaría de Infraestructura, Desarrollo Urbano y Movilidad, relativos a la infraestructura causarán los derechos siguientes:
+(REFORMADA, P.O. 17 DE MARZO DE 2017)
 I. Por la expedición del permiso para la instalación de anuncios publicitarios y señalamientos informativos dentro o fuera del derecho de vía de las carreteras y caminos locales, se pagarán anualmente los derechos conforme a las cuotas que para cada caso a continuación se señala:
 1. Anuncios publicitarios que tienen una superficie total hasta de 25 metros cuadrados: 50 veces el valor diario de la Unidad de Medida y Actualización.
 2. Anuncios publicitarios que tienen una superficie total hasta de 50 metros cuadrados: 60 veces el valor diario de la Unidad de Medida y Actualización.
 3. Anuncios publicitarios que tienen una superficie total de más de 50 metros cuadrados: 120 veces el valor diario de la Unidad de Medida y Actualización.
 4. Señales informativas: 50 veces el valor diario de la Unidad de Medida y Actualización.
+(REFORMADA, P.O. 17 DE MARZO DE 2017)
 II. Por el otorgamiento de permisos para la construcción de obras dentro del derecho de vía de los caminos y carreteras estatales, se pagarán derechos conforme a las siguientes cuotas:
 1. Para obra e instalaciones superficiales, subterráneas o aéreas marginales dentro del derecho de vía, por cada 100 metros o fracción que exceda de dicha longitud: 60 veces el valor diario de la Unidad de Medida y Actualización.
 2. Por la autorización para la construcción de accesos que afecten el derecho de vía en caminos y carreteras, incluyendo la supervisión de la obra, 14% sobre el costo de la misma.
@@ -21,5 +23,7 @@ II. Por el otorgamiento de permisos para la construcción de obras dentro del de
 10. Por el otorgamiento de permiso para la conservación, rehabilitación, reconstrucción, pavimentación o ampliación de caminos estatales: 1% del valor total de la obra.
 11. Por el otorgamiento de permiso para la construcción de puentes peatonales dentro del derecho de vía: 2% del costo total de la obra.
 12. Por el otorgamiento de permiso para la construcción de puentes vehiculares dentro del derecho de vía: 1% del costo total de la obra.
+(REFORMADA, P.O. 17 DE MARZO DE 2017)
 III. Certificaciones, $44.00 (CUARENTA Y CUATRO PESOS 00/100 M.N.), por la primera hoja; $5.00 (CINCO PESOS 00/100 M.N.), por hoja adicional;
+(REFORMADA, P.O. 17 DE MARZO DE 2017)
 IV. Expedición de copia simple, $5.00 (CINCO PESOS 00/100 M.N.), por hoja;
