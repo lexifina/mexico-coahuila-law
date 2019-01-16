@@ -1,0 +1,4 @@
+P.O. 15 DE ENERO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 188.- SE MODIFICA EL CONTENIDO DE LA FRACCIÓN II DEL APARTADO A DEL ARTÍCULO 16 DE LA LEY DE IGUALDAD ENTRE MUJERES Y HOMBRES EN EL ESTADO DE COAHUILA DE ZARAGOZA."
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicac (sic)
+(sic) ión en el Periódico Oficial del Estado.

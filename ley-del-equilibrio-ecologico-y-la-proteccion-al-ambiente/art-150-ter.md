@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 15 DE ENERO DE 2019)
+ARTICULO 150 TER.- El estado y municipios en coordinación con las cámaras empresariales, organizaciones de la sociedad civil y la sociedad en general, deberán instrumentar estrategias y campañas de promoción y concientización ciudadana sobre el uso y destino final de bolsas plásticas y contenedores de poliestireno expandido para fines de envoltura, transportación, carga o traslado de alimentos y bebidas, así como de popotes plásticos que incluyan educación sobre el impacto ambiental producido por los plásticos no biodegradables y biodegradables y de los recipientes elaborados con poliestireno expandido, así como fomentar la utilización de materiales que faciliten su reúso o reciclado y que sean de pronta biodegradación o de productos composteables.
+SECCION II
+De los Servicios Públicos Municipales

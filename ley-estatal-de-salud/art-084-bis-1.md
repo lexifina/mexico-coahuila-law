@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE ENERO DE 2019)
+Artículo 84 Bis 1. La cirugía plástica, estética y reconstructiva consiste en la realización de procedimientos quirúrgicos que requieren de un entrenamiento formal y continuo y se relaciona con el cambio o corrección del contorno o forma de diferentes zonas o regiones de la cara y del cuerpo, deberá efectuarse en establecimientos o unidades médicas con licencia sanitaria vigente, atendidos por profesionales de la salud especializados en dichas materias, de conformidad con lo que establece el artículo 84 bis.
