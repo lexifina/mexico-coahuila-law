@@ -1,0 +1,4 @@
+P.O. 27 DE NOVIEMBRE DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO 90.- SE MODIFICA EL CONTENIDO DE LOS ARTÍCULOS 167, 180 Y 181 DE LA LEY ORGÁNICA DEL CONGRESO DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrará en vigor el día 01 de marzo de 2019.
+SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente decreto.
