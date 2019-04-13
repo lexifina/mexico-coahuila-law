@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE ABRIL DE 2019)
+Artículo 125 Bis 5. Si el enfermo en situación terminal es menor de edad, o se encuentra incapacitado para expresar su voluntad, las decisiones derivadas de los derechos señalados en este título, serán asumidos (sic) por los padres o el tutor y a falta de estos por su representante legal, persona de su confianza mayor de edad o juez de conformidad con las disposiciones aplicables.

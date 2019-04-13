@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE ABRIL DE 2019)
+Artículo 125 Bis 16. El personal médico que deje de proporcionar los cuidados básicos a los enfermos en situación terminal, será sancionado conforme lo establecido por las leyes aplicables.
