@@ -1,0 +1,3 @@
+P.O. 28 DE MAYO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 258.- SE ADICIONA LA FRACCIÓN XXXV AL ARTÍCULO 1 Y SE ADICIONA UN PÁRRAFO AL ARTÍCULO 62 DE LA LEY DE AGUAS PARA LOS MUNICIPIOS DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
