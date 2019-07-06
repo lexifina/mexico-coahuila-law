@@ -1,0 +1,3 @@
+P.O. 5 DE JULIO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 288.- SE REFORMAN LAS FRACCIONES III Y IX DEL INCISO D DEL ARTÍCULO 10 DE LA LEY DE ASISTENCIA SOCIAL Y PROTECCIÓN DE DERECHOS DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación (sic) el Periódico Oficial del Gobierno del Estado.

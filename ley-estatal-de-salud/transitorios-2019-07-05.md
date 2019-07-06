@@ -1,0 +1,7 @@
+P.O. 5 DE JULIO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO 296.- SE MODIFICA EL ARTÍCULO 257 Y SE ADICIONAN LOS ARTÍCULOS 258 BIS, 258 BIS 1, 259 BIS Y 259 BIS 1 A LA LEY ESTATAL DE SALUD; SE ADICIONAN LOS ARTÍCULO (SIC) 258 BIS, 258 BIS (SIC) 335 BIS A LA LEY DE TRANSPORTE Y MOVILIDAD SUSTENTABLE PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- La Secretaría de Salud deberá adecuar en sus gestiones relacionadas con la emisión del Certificado de Discapacidad, los lineamientos que, para tal efecto emita el Sector Salud del Gobierno Federal, así como observar lo dispuesto en las Normas Oficiales Mexicanas correspondientes.
+TERCERO.- La Secretaría de Salud, en coordinación con la Secretaría de Infraestructura, Desarrollo Urbano y Movilidad y la Administración Fiscal General del Gobierno del Estado de Coahuila de Zaragoza, deberán realizar las gestiones necesarias para la implementación y emisión del permiso temporal de estacionamiento por discapacidad motora, en un plazo de hasta ciento ochenta días naturales contados a partir de la entrada en vigor del presente decreto.
+CUARTO.- Las erogaciones que se generen con motivo de la entrada en vigor del presente Decreto, se cubrirán con cargo al presupuesto aprobado a las dependencias y entidades involucradas para el ejercicio fiscal respectivo y subsecuentes.
+QUINTO.- Se dejan sin efectos las disposiciones que se opongan a lo previsto en el presente decreto.

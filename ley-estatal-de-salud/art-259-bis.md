@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE JULIO DE 2019)
+Artículo 259 Bis.- El certificado de discapacidad será expedido conforme a la legislación vigente y acorde con los tratados internacionales de los que México sea parte, por profesionales de la medicina o persona autorizada por la autoridad sanitaria. El certificado de discapacidad deberá incluir la Clave Única de Registro de Población del beneficiario.
