@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 12 DE JULIO DE 2019)
+Artículo 6 Bis. La Secretaría de Cultura, en coordinación con la Secretaría de Educación, promoverá en las instituciones educativas el fomento del hábito de la escritura y la lectura creativa en los alumnos, como factor de atención prioritaria para el ejercicio del derecho a la educación y a la cultura.
+A tal fin, gestionará el establecimiento de talleres de escritura y círculos de lectura, que fortalezcan la comprensión lectora y la expresión oral y escrita en todos los niveles educativos, con especial atención en la educación preescolar y en los primeros grados de la educación básica.
+Las instituciones educativas deberán desarrollar anualmente planes de fomento a la escritura y la lectura, así como para el fortalecimiento de las bibliotecas escolares, de conformidad con lo establecido en el Programa Estatal.
