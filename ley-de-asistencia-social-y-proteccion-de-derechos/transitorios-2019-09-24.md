@@ -1,0 +1,3 @@
+P.O. 24 DE SEPTIEMBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 349.- SE REFORMA LA FRACCIÓN XV Y SE RECORRE LA FRACCIÓN XVI DEL ARTÍCULO 6 DE LA LEY DE ASISTENCIA SOCIAL Y PROTECCIÓN DE DERECHOS DEL ESTADO DE COAHUILA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación el Periódico Oficial del Gobierno del Estado.
