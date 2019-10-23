@@ -1,0 +1,3 @@
+P.O. 22 DE OCTUBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 359.- SE ADICIONA UN PÁRRAFO AL ARTÍCULO 52 DE LA LEY PARA EL DESARROLLO E INCLUSIÓN DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación el Periódico Oficial del Gobierno del Estado.
