@@ -1,5 +1,5 @@
 LEY ORGÁNICA DEL CONGRESO DEL ESTADO INDEPENDIENTE LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA
-Ley publicada en el Periódico Oficial del Estado de Coahuila, el martes 30 de diciembre de 2014.
+Ley publicada en el Periódico Oficial del Estado de Coahuila de Zaragoza, el martes 30 de diciembre de 2014.
 QUE EL CONGRESO DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA;
 DECRETA:
 NÚMERO 729.-
