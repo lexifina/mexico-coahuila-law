@@ -1,0 +1,3 @@
+P.O. 22 DE NOVIEMBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO 393.- SE REFORMAN LOS ARTÍCULOS 19, 25 FRACCIÓN I, 88 FRACCIÓN XXIV, Y 112 DE LA LEY ORGÁNICA DEL CONGRESO DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
