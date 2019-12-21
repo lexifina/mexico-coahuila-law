@@ -1,0 +1,4 @@
+P.O. 20 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO 409.- SE MODIFICA EL CONTENIDO DE LA FRACCIÓN XXVI, DEL ARTÍCULO 7 DE LA LEY DEL EQUILIBRIO ECOLÓGICO Y PROTECCIÓN AL AMBIENTE DEL ESTADO DE COAHUILA DE ZARAGOZA; SE MODIFICAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ESTATAL DE EDUCACIÓN".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Se derogan las disposiciones que se opongan al presente decreto.
