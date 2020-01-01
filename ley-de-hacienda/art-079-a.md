@@ -1,2 +1,1 @@
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 2018)
-ARTICULO 79-A. En la inscripción o registro de los documentos que se describen en la fracción II incisos 1), 4) y 8) del artículo anterior, si el valor de la operación que se contenga en el documento excede de $1'309,515.00 (UN MILLÓN TRESCIENTOS NUEVE MIL QUINIENTOS QUINCE PESOS 00/100 M.N.), se pagará adicionalmente por lo que exceda de dicha cantidad el 6 al millar.
+ARTICULO 79-A.- [N. DE E. ESTE ARTÍCULO PASÓ A SER EL ARTÍCULO 55, P.O. 31 DE DICIEMBRE DE 2019]

@@ -1,0 +1,8 @@
+P.O. 31 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO 527.- SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE TRANSPORTE Y MOVILIDAD SUSTENTABLE PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Las unidades o vehículos que se utilicen para la prestación del servicio especializado escolar, deberán cumplir con la antigüedad que señala la presente Ley en forma gradual. En razón de lo anterior a partir de la entrada en vigor del presente decreto y hasta el 31 de diciembre del año dos mil veintidós la antigüedad de los vehículos que prestan el servicio en esta modalidad será de veinte años.
+A partir del primero de enero del año dos mil veintitrés y hasta el 31 de diciembre del año dos mil veinticuatro la antigüedad que deberán cumplir será de dieciocho años y comenzando el primero de enero del año dos mil veinticinco la antigüedad del vehículo deberá ser de quince años.
+Este beneficio solo lo podrán obtener aquéllas unidades que derivado de la revisión física mecánica de la misma, se encuentren en condiciones óptimas para su adecuado funcionamiento y garantía de la seguridad de los usuarios que la modalidad del servicio requiere.
+TERCERO.- Los conductores que prestan el servicio de transporte entre particulares por medio de una plataforma tecnológica, desde antes de la entrada en vigor del presente decreto, no les será exigible portar la licencia de conducir Tipo D, sino hasta que expire la vigencia de su licencia de conducir.
+CUARTO.- Se derogan las disposiciones que se opongan al presente decreto.

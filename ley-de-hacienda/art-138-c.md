@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2015)
-PAGO
-ARTICULO 138-C.- El pago de los derechos a que se refiere este Capítulo deberá efectuarse en las Instituciones de Crédito o establecimientos autorizados, previamente a la prestación del servicio.
+ARTICULO 138-C.- [N. DE E. EL ESTE ARTÍCULO PASÓ A SER EL ARTÍCULO 63, P.O. 31 DE DICIEMBRE DE 2019]

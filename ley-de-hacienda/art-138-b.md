@@ -1,3 +1,1 @@
-(REFORMADO, P.O. 17 DE MARZO DE 2017)
-SUJETO
-ARTÍCULO 138-B.- Son sujeto de este derecho, las personas que soliciten los servicios que se establecen en el artículo que antecede.
+ARTICULO 138-B.- [N. DE E. EL ESTE ARTÍCULO PASÓ A SER EL ARTÍCULO 62, P.O. 31 DE DICIEMBRE DE 2019]
