@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 10 DE ENERO DE 2020)
+ARTÍCULO 413 BIS.- El Presidente Municipal o el tesorero municipal, apreciando las circunstancias del caso y de manera fundada y motivada, podrán condonar total o parcialmente los accesorios a que se refiere el artículo 10 de este código, incluyendo multas fiscales, respecto de los créditos fiscales impugnados ante el Tribunal de Justicia Administrativa del Estado de Coahuila de Zaragoza, mediante el juicio contencioso administrativo sumario.
+La condonación quedará condicionada al cumplimiento de la propuesta de conciliación de conformidad con la Ley de Procedimiento Contencioso Administrativo para el Estado de Coahuila de Zaragoza.

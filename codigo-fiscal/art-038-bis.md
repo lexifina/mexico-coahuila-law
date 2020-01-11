@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE ENERO DE 2020)
+ARTICULO 38 BIS. La Secretaría de Finanzas por conducto de la Administración Fiscal General podrá condonar total o parcialmente accesorios de los créditos fiscales impugnados ante el Tribunal de Justicia Administrativa del Estado de Coahuila de Zaragoza mediante el juicio contencioso administrativo sumario, en los términos de la Ley de Procedimiento Contencioso Administrativo para el Estado de Coahuila de Zaragoza. Esta condonación quedará condicionada al cumplimiento de la propuesta de conciliación de conformidad con la misma ley.

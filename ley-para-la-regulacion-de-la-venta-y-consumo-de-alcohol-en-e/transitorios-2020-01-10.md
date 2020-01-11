@@ -1,0 +1,4 @@
+P.O. 10 DE ENERO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 414.- SE REFORMAN LA FRACCIÓN X DEL ARTÍCULO 4 RECORRIÉNDOSE LAS ULTERIORES; SE ADICIONAN LAS FRACCIONES IV Y V AL ARTÍCULO 1, LA FRACCIÓN X, UN SEGUNDO Y TERCER PÁRRAFO AL ARTÍCULO (SIC); Y SE DEROGA LA FRACCIÓN VI DEL ARTÍCULO 4 Y EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 65 DE LA LEY PARA LA REGULACIÓN DE LA VENTA Y CONSUMO DE ALCOHOL EN EL ESTADO DE COAHUILA DE ZARAGOZA".]
+Primero.- El presente decreto, entrará en vigor al día siguiente de su publicación en el Periódico Oficial de (sic) Gobierno del Estado.
+Segundo.- Se derogan (sic) cualquier disposición contraria al presente Decreto.

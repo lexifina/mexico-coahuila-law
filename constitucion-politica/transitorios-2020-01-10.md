@@ -1,0 +1,3 @@
+P.O. 10 DE ENERO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 412.- SE ADICIONA UN PÁRRAFO OCTAVO RECORRIÉNDOSE EL ULTERIOR, DEL ARTÍCULO 8 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
