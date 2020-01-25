@@ -1,0 +1,3 @@
+P.O. 24 DE ENERO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 434.- SE MODIFICA EL PRIMER PÁRRAFO DEL ARTÍCULO 57 DEL CÓDIGO PENAL DEL ESTADO DE COAHUILA DE ZARAGOZA, PUBLICADO EN EL PERIÓDICO OFICIAL, EL 27 DE OCTUBRE DE 2017".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación el Periódico Oficial del Gobierno del Estado.
