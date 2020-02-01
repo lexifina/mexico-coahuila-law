@@ -1,12 +1,5 @@
-LEY PARA LA PREVENCIÓN, ATENCIÓN Y CONTROL DEL ACOSO ESCOLAR PARA EL ESTADO DE COAHUILA DE ZARAGOZA
-Ley publicada en la Primera Sección del Periódico Oficial del Estado Coahuila, el viernes 13 de noviembre de 2015.
-EL C. RUBÉN IGNACIO MOREIRA VALDEZ, GOBERNADOR CONSTITUCIONAL DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA, A SUS HABITANTES SABED:
-QUE EL CONGRESO DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA;
-DECRETA
-NÚMERO 182.-
-ÚNICO.- Se crea la Ley para la Prevención, Atención y Control del Acoso Escolar para el Estado de Coahuila de Zaragoza, para quedar como sigue:
-LEY PARA LA PREVENCIÓN, ATENCIÓN Y CONTROL DEL ACOSO ESCOLAR PARA EL ESTADO DE COAHUILA DE ZARAGOZA
-TÍTULO PRIMERO
-Disposiciones Generales
-CAPÍTULO I
-Disposiciones Generales
+[N. DE E. DE CONFORMIDAD CON EL TRANSITORIO ARTÍCULO SEGUNDO DEL REGLAMENTO INTERIOR DEL INSTITUTO SONORENSE DE LAS MUJERES, PUBLICADO EN EL B.O. DE 25 DE ENERO DE 2018, EL PRESENTE ORDENAMIENTO HA SIDO ABROGADO.]
+REGLAMENTO INTERIOR DEL INSTITUTO SONORENSE DE LA MUJER
+Reglamento publicado en la Sección I del Boletín Oficial del Estado de Sonora, el jueves 16 de noviembre de 2006.
+La Junta Directiva del Instituto Sonorense de la Mujer, con fundamento en lo establecido en el artículo 54 de la Ley Orgánica del Poder Ejecutivo del Estado de Sonora y el artículo 10, fracción IV del Decreto que crea el Instituto Sonorense de la Mujer, ha tenido a bien a aprobar el siguiente:
+REGLAMENTO INTERIOR DEL INSTITUTO SONORENSE DE LA MUJER

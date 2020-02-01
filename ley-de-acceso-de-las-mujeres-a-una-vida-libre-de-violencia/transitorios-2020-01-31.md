@@ -1,0 +1,3 @@
+P.O. 31 DE ENERO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 487.- SE MODIFICA EL CONTENIDO DEL ARTÍCULO 33 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.

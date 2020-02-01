@@ -1,3 +1,0 @@
-P.O. 6 DE DICIEMBRE DE 2019.
-[N. DE E. TRANSITORIO DEL "DECRETO 381.- SE REFORMA EL ARTÍCULO 1 Y LA FRACCIÓN I DEL ARTÍCULO 13 DE LA LEY PARA LA PREVENCIÓN, ATENCIÓN Y CONTROL DEL ACOSO ESCOLAR PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
-ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
