@@ -69,7 +69,8 @@ V. En materia de hacienda pública municipal:
 4. Coordinar, supervisar y vigilar con toda oportunidad los ingresos municipales.
 5. Enviar al Congreso del Estado para su estudio y aprobación, los proyectos de contratación de créditos que afecten los ingresos de la administración municipal.
 6. Aprobar los estados financieros mensuales que presente el tesorero municipal y publicarlos en el Periódico Oficial del Estado, cada tres meses.
-7. Presentar al Congreso del Estado la cuenta pública de la hacienda municipal, integrada por los informes trimestrales de origen y aplicación de los recursos públicos, mismos que deberán ser presentados dentro de los quince días siguientes al término del trimestre que corresponda; asimismo verificar la presentación de la cuenta pública del sector paramunicipal.
+(REFORMADO, P.O. 27 DE MARZO DE 2020)
+7. Presentar al Congreso del Estado la cuenta pública de la hacienda municipal, así como los informes de avance de gestión financiera, en los términos y plazos que para tal efecto establezca la ley de la materia; asimismo verificar la presentación de la cuenta pública y de los informes correspondientes del sector paramunicipal.
 (REFORMADO, P.O. 2 DE DICIEMBRE DE 2016)
 8. Proponer al Congreso del Estado a más tardar el 15 de octubre de cada año, las cuotas y tarifas aplicables a impuestos, derechos, contribuciones de mejoras y las tablas de valores unitarios de suelo y construcciones que sirvan de base para el cobro de las contribuciones sobre la propiedad inmobiliaria, en los términos de las leyes fiscales y conforme a los principios de equidad, proporcionalidad y capacidad contributiva.
 9. Determinar la forma en que el tesorero y demás servidores públicos que manejen caudales públicos municipales, deban caucionar suficientemente su manejo.
