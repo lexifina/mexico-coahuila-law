@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE MAYO DE 2020)
+Artículo 16 Bis.- El Estado y los Ayuntamientos promoverán que los entornos educativos y sus respectivas áreas de esparcimiento para niñas, niños y adolescentes estén libres de toda forma de promoción de alimentos ricos en grasas saturadas, ácidos grasos de tipo trans, azúcares libres o sal. Dichos entornos incluyen, sin carácter limitativo, escuelas, guarderías, centros de cuidado infantil, terrenos escolares, centros deportivos, recreativos y culturales.
