@@ -1,0 +1,3 @@
+P.O. 12 DE MAYO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 601.- SE REFORMA LA FRACCIÓN X DEL INCISO B DEL ARTÍCULO 4°, SE REFORMA LA DENOMINACIÓN DEL CAPÍTULO XI Y SE ADICIONAN UN SEGUNDO Y TERCER PÁRRAFO AL ARTÍCULO 222 DE LA LEY ESTATAL DE SALUD".]
+ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
