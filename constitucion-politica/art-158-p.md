@@ -12,8 +12,8 @@ IV. Los presupuestos de egresos serán aprobados por los Ayuntamientos con base 
 El Ayuntamiento deberá aprobar en el presupuesto de egresos del ejercicio las partidas necesarias para solventar las obligaciones incurridas en ejercicios anteriores y pagaderos en dicho ejercicio:
 (F. DE E., P.O. 10 DE ABRIL DE 2009)
 a) Que constituyan deuda pública del Ayuntamiento o de las entidades paramunicipales que cuenta con la garantía del Ayuntamiento o del Estado, conforme a lo autorizado por las leyes y los decretos correspondientes, y
-(F. DE E., P.O. 10 DE ABRIL DE 2009)
-b) Que se deriven de contratos para proyectos para prestación de servicios aprobados por el Ayuntamiento conforme a las leyes aplicables.
+(REFORMADO, P.O. 26 DE JUNIO DE 2020)
+b) Que se deriven de contratos para asociaciones público privadas aprobados por el Ayuntamiento conforme a las leyes aplicables.
 (F. DE E., P.O. 10 DE ABRIL DE 2009)
 El ejercicio presupuestal del Municipio deberá ajustarse a los principios de honestidad, legalidad, optimización de recursos, racionalidad e interés público y social. No se otorgarán remuneraciones, pagos o percepciones distintas a su ingreso establecido en el presupuesto de egresos al Presidente Municipal, Regidores y Síndicos, a los integrantes de los Concejos Municipales. La infracción hace responsable solidariamente, por su devolución, a la autoridad que ordene el pago de la percepción extraordinaria; al servidor público que lo ejecute y al que lo reciba, sin perjuicio de la responsabilidad establecida por la ley de la materia.
 V. El Ayuntamiento manejará prudentemente el patrimonio municipal conforme a la ley.
