@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- El mecanismo para dar seguimiento y evaluar las políticas públicas de atención, asistencia y protección preferencial de las mujeres jefas de familia, deberá integrarse en un plazo no mayor a seis meses, contado a partir de la entrada en vigor de la presente Ley.

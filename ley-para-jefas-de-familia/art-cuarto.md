@@ -1,0 +1,19 @@
+ARTÍCULO CUARTO.- Se derogan todas aquellas disposiciones que se opongan al contenido de la presente Ley.
+DADO en la Ciudad de Saltillo, Coahuila de Zaragoza, a los veintisiete días del mes de mayo del año dos mil veinte.
+DIPUTADO PRESIDENTE
+JAIME BUENO ZERTUCHE
+(RÚBRICA)
+DIPUTADA SECRETARIA
+LILIA ISABEL GUTIÉRREZ BURCIAGA
+(RÚBRICA)
+DIPUTADA SECRETARIA
+ELISA CATALINA VILLALOBOS HERNÁNDEZ
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 6 de julio de 2020.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+ING. MIGUEL ÁNGEL RIQUELME SOLÍS
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+ING. JOSÉ MARÍA FRAUSTRO SILLER
+(RÚBRICA)
