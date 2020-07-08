@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Los procedimientos que se encuentren en trámite una vez que entre en vigor la presente Ley, serán concluidos de conformidad con las disposiciones vigentes al momento de su inicio, en términos de las disposiciones aplicables.
