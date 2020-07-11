@@ -1,0 +1,4 @@
+P.O. 10 DE JULIO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 640.- SE ADICIONA LA FRACCIÓN XXXVII BIS AL ARTÍCULO 5; SE ADICIONA LA FRACCIÓN XXXVII RECORRIÉNDOSE LA ULTERIOR DEL ARTÍCULO 12 Y SE ADICIONA LA FRACCIÓN XVI RECORRIÉNDOSE LA ULTERIOR DEL ARTÍCULO 26 DE LA LEY DE PROTECCIÓN CIVIL DE ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- La Secretaría de Gobierno a través de la Subsecretaría de Protección Civil en el Estado deberá emitir dentro de los ciento ochenta días naturales contados a partir de la entrada en vigor de este decreto, el protocolo especial de actuación en materia de prevención y atención de siniestros, ocasionados por la instalación y/o funcionamiento de juegos mecánicos.
