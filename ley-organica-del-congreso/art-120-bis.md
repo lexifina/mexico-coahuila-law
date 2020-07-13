@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE JULIO DE 2020)
+ARTÍCULO 120 BIS. En la medida de las posibilidades, y cuando así lo apruebe la mayoría de sus integrantes, las reuniones de las comisiones que no tengan el carácter de privadas en los términos de la presente Ley, se transmitirán en vivo a través del uso de la tecnología informática, en el portal de internet y/o plataformas oficiales, mismas que deberán ser videograbadas para que estén disponibles de forma pública.
