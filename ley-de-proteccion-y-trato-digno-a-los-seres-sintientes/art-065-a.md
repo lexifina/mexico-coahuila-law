@@ -2,7 +2,8 @@
 Artículo 65 A.- Los ayuntamientos del Estado que cuenten o no cuenten con un (sic) Centros de Control Animal, Antirrábicos o análogos podrán convertirse en CARA, que, además de las funciones que les confieren esta ley y demás ordenamientos jurídicos aplicables, tendrán como objetivos generales y actividades principales, las siguientes:
 I. Contar con la infraestructura necesaria para brindar a los animales que rescaten, resguarden y trasladen una estancia digna, segura y saludable, garantizando en todo momento el bienestar animal;
 II. Promover constantemente entre la población los beneficios de la tutela responsable, la adopción, esterilización y vacunación de los animales;
-III. Reducir y controlar la reproducción de los animales en situación de calle por medio de la esterilización obligatoria;
+(REFORMADA, P.O. 7 DE AGOSTO DE 2020)
+III. Reducir y controlar la reproducción de los animales en situación de calle por medio de la esterilización obligatoria. Cada municipio, en la medida de sus posibilidades y en coordinación con las secretarías de Salud y de Medio Ambiente, realizará por lo menos una campaña de esterilización obligatoria cada seis meses, debiendo poner algún tipo de distintivo a cada animal en situación de calle que haya sido esterilizado, así como llevar un reporte del número y condición de salud de los animales esterilizados mismo que será presentado a la Secretaría de Salud;
 IV. Prestar servicios de reintegración de animales de compañía a través de la adopción;
 V. Prestar servicios de eutanasia, de conformidad con las Normas Oficiales Mexicanas;
 VI. Realizar la inscripción de los animales de compañía bajo su custodia en el área de Animales de compañía del Sistema;

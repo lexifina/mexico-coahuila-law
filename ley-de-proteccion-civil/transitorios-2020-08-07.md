@@ -1,0 +1,4 @@
+P.O. 7 DE AGOSTO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 656.- SE REFORMA LA FRACCIÓN III DEL ARTÍCULO 3, EL PRIMER PÁRRAFO Y LA FRACCIÓN III DEL ARTÍCULO 4 BIS Y LA FRACCIÓN III DEL ARTÍCULO 10, LA FRACCIÓN II Y LA FRACCIÓN V DEL ARTÍCULO 13; SE ADICIONA UN SEGUNDO PÁRRAFO A LA FRACCIÓN VII DEL ARTÍCULO 12 Y LA FRACCIÓN V AL ARTÍCULO 25, TODOS DE LA LEY DE PROTECCIÓN CIVIL PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO. - El presente decreto, entrará en vigor al día siguiente de su publicación en el Periódico Oficial de (sic) Gobierno del Estado.
+SEGUNDO. - Se derogan todas las disposiciones legales que se opongan al presente Decreto.
