@@ -1,0 +1,4 @@
+P.O. 4 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 710.- SE ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 117, RECORRIENDO EL QUE ACTUALMENTE OCUPA ESE LUGAR A LA TERCERA POSICIÓN, HACIENDO LO PROPIO CON LOS RESTANTES PÁRRAFOS, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Dentro de los sesenta días posteriores a la entrada en vigor de este decreto, el Poder Legislativo realizará las adecuaciones legislativas necesarias para garantizar en las leyes correspondientes una educación a los escolares que fomente en ellos el cuidado, preservación y protección del medio ambiente y los seres vivos en los términos planteados en la presente reforma.
