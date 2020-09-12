@@ -1,0 +1,3 @@
+P.O. 11 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 703.- SE REFORMA EL TERCER PÁRRAFO DEL ARTÍCULO 148, LA FRACCIÓN I DEL ARTÍCULO 149; SE ADICIONA LA FRACCIÓN VII AL ARTÍCULO 149 BIS, LAS FRACCIONES IV, V Y VI AL ARTÍCULO 150, A LA LEY ESTATAL DE SALUD".]
+ÚNICO.- El presente decreto, entrará en vigor al día siguiente de su publicación en el Periódico Oficial de (sic) Gobierno del Estado.

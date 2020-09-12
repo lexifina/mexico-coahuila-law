@@ -6,3 +6,5 @@ III. Fomentar los valores universales, así como el respeto a la dignidad de la 
 IV. Establecer las medidas necesarias para lograr la reinserción social de las personas dependientes de sustancias psicoactivas;
 V. Implementar las bases mínimas para diseñar el contenido de políticas, programas y acciones de sensibilización, prevención, atención, tratamiento y erradicación de las adicciones;
 VI. Promover y difundir acciones que ayuden a la sensibilización, prevención, recuperación y reinserción social de las personas dependientes de sustancias psicoactivas y fomenten el desarrollo del sentido social en esta materia, y
+(ADICIONADA, P.O. 11 DE SEPTIEMBRE DE 2020)
+VII. Proteger la salud y el bienestar de la población frente al uso, consumo o adicción de sustancias psicoactivas, previniendo los riesgos que esta genera.
