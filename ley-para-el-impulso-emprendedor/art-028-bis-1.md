@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE SEPTIEMBRE DE 2020)
+Artículo 28 bis 1.- La Secretaría de Economía, con la aprobación del Consejo General Ciudadano, generará una serie de estímulos y programas, en el marco de la política integral de apoyo a las micro, pequeñas y medianas empresas que facilite el financiamiento y otorgamiento de créditos para el fortalecimiento y desarrollo de la micro, pequeña y mediana empresa.
+La Secretaría deberá crear un esquema integral y de fácil acceso a las micro, pequeñas y medianas empresas, donde se presente el conjunto de apoyos, actividades de fomento y estímulos dedicados a este segmento.

@@ -1,0 +1,3 @@
+P.O. 29 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 726.- SE ADICIONAN EL INCISO C) A LA FRACCIÓN I DEL ARTÍCULO 5°, ASÍ COMO LOS ARTÍCULOS 28 BIS Y 28 BIS 1, DE LA LEY PARA EL IMPULSO EMPRENDEDOR DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
