@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE OCTUBRE DE 2020)
+ARTÍCULO 156 BIS. Todas las iniciativas que contengan alguna norma relacionada con las personas con discapacidad, serán turnadas a la Comisión de Atención a Grupos en Situación de Vulnerabilidad para que se realice la o las consultas a que se refiere la fracción VII del Artículo 109 de esta Ley, salvo aquellos casos que por tratarse de una legislación íntegra tenga que turnarse a comisiones dictaminadoras unidas.
