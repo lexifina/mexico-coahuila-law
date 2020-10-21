@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE OCTUBRE DE 2020)
+Artículo 28 Bis. La autoridad ministerial o judicial responsable, con el auxilio de la policía preventiva estatal o municipal, deberá de realizar las gestiones necesarias para notificar a la persona agresora, para informar a las autoridades responsables de la implementación de la medida, así como para verificar que la misma se cumpla en los términos para los que fue dictada.
+Por ninguna circunstancia el Ministerio Público notificará de sus actuaciones a la persona agresora a través de la víctima. Cualquier notificación es responsabilidad exclusiva de la autoridad.
+Las autoridades que intervengan en el cumplimiento de una orden de protección también serán las responsables de informar a la autoridad ordenadora sobre su implementación conforme a la Ley para la Emisión y Seguimiento de las Medidas de Protección para Mujeres en Situación de Violencia del Estado de Coahuila de Zaragoza.
