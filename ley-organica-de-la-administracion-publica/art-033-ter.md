@@ -22,4 +22,7 @@ XIX. Emitir opinión ante la Secretaría de Economía, en aquellos casos en que 
 XX. Coordinar y supervisar la implementación, el seguimiento y aplicación de los programas regionales referidos a pueblos mágicos;
 XXI. Implementar políticas públicas que fomenten el desarrollo turístico de los pueblos mágicos del Estado;
 XXII. Promover y apoyar el desarrollo de la infraestructura turística en los pueblos mágicos y estimular la participación de los sectores social y privado, y
-XXIII. Las demás que le confieran expresamente esta ley, otras disposiciones aplicables y aquellas que le encomiende el Titular del Ejecutivo.
+(REFORMADA [N. DE E. ADICIONADA], P.O. 20 DE OCTUBRE DE 2020)
+XXIII. Realizar convenios de coordinación y colaboración, con el objeto de regular la prestación de servicios de hospedaje que se ofrecen mediante plataformas digitales en el Estado.
+(ADICIONADA [N. DE E. REUBICADA], P.O. 20 DE OCTUBRE DE 2020)
+XXIV. Las demás que le confieran expresamente esta ley, otras disposiciones aplicables y aquellas que le encomiende el Titular del Ejecutivo.
