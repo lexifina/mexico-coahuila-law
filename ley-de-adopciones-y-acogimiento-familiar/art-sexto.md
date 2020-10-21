@@ -1,0 +1,19 @@
+ARTÍCULO SEXTO.- Se derogan las disposiciones que se opongan al presente Decreto.
+DADO en la Ciudad de Saltillo, Coahuila de Zaragoza, a los veintitrés días del mes de septiembre del año dos mil veinte.
+DIPUTADO PRESIDENTE
+MARCELO DE JESÚS TORRES COFIÑO
+(RÚBRICA)
+DIPUTADA SECRETARIA
+VERÓNICA BOREQUE MARTÍNEZ GONZÁLEZ
+(RÚBRICA)
+DIPUTADA SECRETARIA
+DIANA PATRICIA GONZÁLEZ SOTO
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 19 de octubre de 2020.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+ING. MIGUEL ÁNGEL RIQUELME SOLÍS
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+ING. JOSÉ MARÍA FRAUSTRO SILLER
+(RÚBRICA)

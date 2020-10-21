@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Los procesos de adopción que se encuentren en trámite a la fecha de entrada en vigor del presente Decreto, se deberán concluir conforme a la normatividad vigente al momento de su inicio.

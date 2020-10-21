@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga el Reglamento del Proceso Administrativo de Adopciones del Estado de Coahuila de Zaragoza, publicado en el Periódico Oficial del Gobierno del Estado el 27 de septiembre de 2013.

@@ -1,0 +1,2 @@
+ARTÍCULO CUARTO.- Se modifica la denominación del Consejo Técnico de Adopciones por Consejo Técnico de Evaluación, mismo que deberá integrarse de conformidad con lo establecido en el presente Decreto, en un periodo que no excederá de sesenta días hábiles contados a partir de la entrada en vigor del mismo, previa emisión de la convocatoria para elegir a las personas representantes de las asociaciones civiles.
+Cuando alguna disposición legal o administrativa haga mención al Consejo Técnico de Adopciones, se entenderá que se refiere al Consejo Técnico de Evaluación.

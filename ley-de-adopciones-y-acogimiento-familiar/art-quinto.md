@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Cuando se haga alusión en un ordenamiento jurídico al Reglamento del Proceso Administrativo de Adopciones del Estado de Coahuila de Zaragoza se entenderá que se refiere a la Ley de Adopciones y Acogimiento Familiar para el Estado de Coahuila de Zaragoza, sin perjuicio de que con posterioridad se hagan los ajustes normativos necesarios.
