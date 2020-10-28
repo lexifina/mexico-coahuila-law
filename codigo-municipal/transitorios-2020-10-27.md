@@ -1,0 +1,3 @@
+P.O. 27 DE OCTUBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 772.- SE ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 96 Y SE ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 109 DEL CÓDIGO MUNICIPAL PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
