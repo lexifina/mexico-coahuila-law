@@ -1,3 +1,0 @@
-P.O. 22 DE DICIEMBRE DE 2017.
-[N. DE E. TRANSITORIO DEL "DECRETO 1042.- SE ADICIONAN LAS FRACCIONES V Y VI RECORRIENDO EL NUMERAL DE LA EXISTENTE V AL VII, DEL ARTÍCULO 19 PARA (SIC) DEL CÓDIGO MUNICIPAL PARA EL ESTADO DE COAHUILA".]
-ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación (sic) el Periódico Oficial del Gobierno del Estado.

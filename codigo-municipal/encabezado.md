@@ -1,8 +1,8 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
-CÓDIGO MUNICIPAL PARA EL ESTADO DE COAHUILA DE ZARAGOZA
-Código publicado en el Periódico Oficial del Estado de Coahuila de Zaragoza, el martes 20 de julio de 1999.
-EL C. ROGELIO MONTEMAYOR SEGUY, GOBERNADOR CONSTITUCIONAL DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA, A SUS HABITANTES SABED:
-QUE EL CONGRESO DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA;
-DECRETA:
-NUMERO.- 324
-CÓDIGO MUNICIPAL PARA EL ESTADO DE COAHUILA DE ZARAGOZA
+LEY GANADERA DEL ESTADO DE CAMPECHE
+Ley publicada en la Sección Segunda del Periódico Oficial del Estado de Campeche, el viernes 12 de septiembre de 1997.
+JORGE SALOMON AZAR GARCIA, Gobernador Constitucional del Estado Libre y Soberano de Campeche, a sus habitantes, sabed:
+Que el H. Congreso Constitucional del Estado Libre y Soberano de Campeche, me ha dirigido el siguiente:
+DECRETO
+La LV Legislatura del H. Congreso Constitucional del Estado Libre y Soberano de Campeche, decreta:
+NUMERO 358
+LEY GANADERA DEL ESTADO DE CAMPECHE

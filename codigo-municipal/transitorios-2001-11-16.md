@@ -1,4 +1,0 @@
-P.O. 16 DE NOVIEMBRE DE 2001.
-ARTÍCULO PRIMERO. Estas reformas y adiciones a diversas disposiciones del Código Municipal para el Estado de Coahuila de Zaragoza y a la Ley de Responsabilidades de los Servidores Públicos Estatales y Municipales del Estado de Coahuila de Zaragoza, entrarán en vigor el día de la publicación del presente Decreto en el Periódico Oficial del Gobierno del Estado.
-ARTÍCULO SEGUNDO. El período constitucional de gobierno de los Ayuntamientos del estado de cuatro años, será aplicable sólo a partir de la renovación de los Ayuntamientos del año 2005 y, por tanto, los presidentes municipales, regidores y síndicos de los Ayuntamientos elegidos en el año 2005 durarán en su encargo cuatro años. Esta norma no podrá aplicarse en forma retroactiva.
-ARTÍCULO TERCERO. Se derogan todas las disposiciones legales o reglamentarias que se opongan al presente Decreto.
