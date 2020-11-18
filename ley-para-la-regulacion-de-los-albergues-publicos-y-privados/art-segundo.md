@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Los albergues privados que se encuentren en trámites para su apertura y funcionamiento, contarán con 120 días contados a partir de la publicación de la presente Ley, para regularizar sus servicios de acuerdo a lo dispuesto en esta norma so pena de incurrir en responsabilidad.
