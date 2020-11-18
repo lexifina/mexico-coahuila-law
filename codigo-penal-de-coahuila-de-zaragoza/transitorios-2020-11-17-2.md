@@ -1,0 +1,3 @@
+P.O. 17 DE NOVIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 765.- SE REFORMA: EL PRIMER PÁRRAFO DEL ARTÍCULO 226, EL PRIMERO Y SEGUNDO PÁRRAFOS DEL ARTÍCULO 227 Y LA FRACCIÓN I DEL ARTÍCULO 237 DEL CÓDIGO PENAL DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente decreto, entrará en vigor al día siguiente de su publicación en el Periódico Oficial de Gobierno del Estado.
