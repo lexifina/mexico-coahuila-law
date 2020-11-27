@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- En un plazo que no exceda de ciento ochenta días hábiles, contados a partir de la entrada en vigor del presente Decreto, el Congreso del Estado de Coahuila de Zaragoza deberá realizar las adecuaciones necesarias a la legislación estatal.
