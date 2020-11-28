@@ -1,0 +1,19 @@
+ARTÍCULO CUARTO.- Se derogan las disposiciones que se opongan a lo previsto en la presente ley.
+DADO en la Ciudad de Saltillo, Coahuila de Zaragoza, a los cuatro días del mes de noviembre del año dos mil veinte.
+DIPUTADO PRESIDENTE
+MARCELO DE JESÚS TORRES COFIÑO
+(RÚBRICA)
+DIPUTADA SECRETARIA
+VERÓNICA BOREQUE MARTÍNEZ GONZÁLEZ
+(RÚBRICA)
+DIPUTADA SECRETARIA
+DIANA PATRICIA GONZÁLEZ SOTO
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 26 de noviembre de 2020.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+ING. MIGUEL ÁNGEL RIQUELME SOLÍS
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+ING. JOSÉ MARÍA FRAUSTRO SILLER
+(RÚBRICA)
