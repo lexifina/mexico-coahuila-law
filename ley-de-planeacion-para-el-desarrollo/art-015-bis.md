@@ -5,7 +5,8 @@ II. Reducción de las brechas de género;
 III. Promover el adelanto de las mujeres en los diversos ámbitos del desarrollo;
 IV. Establecer acciones para la atención integral a mujeres víctimas de violencia;
 V. Promover la participación de las mujeres en la construcción de las acciones afirmativas y políticas;
-VI. Atender las necesidades de mujeres embarazadas, madres solteras, indígenas, con discapacidad, víctimas de violencia y/o del delito, niñas, y otra condición que limite el desarrollo; y
+(REFORMADA, P.O. 27 DE NOVIEMBRE DE 2020)
+VI. Atender las necesidades de mujeres embarazadas, madres solteras, miembros de pueblos o comunidades indígenas o afromexicanas, con discapacidad, víctimas de violencia y/o del delito, niñas, y otra condición que limite el desarrollo; y
 VII. Las demás contenidas en la Ley de Acceso de las Mujeres a una Vida Libre de Violencia para el Estado de Coahuila de Zaragoza y en la Ley para la Igualdad entre Mujeres y Hombres en el Estado de Coahuila de Zaragoza.
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2017)
 Para lograr lo anterior, el Ayuntamiento podrá realizar convenios, acuerdos o acciones de coordinación con el Instituto Coahuilense de las Mujeres.
