@@ -1,0 +1,3 @@
+P.O. 29 DE ENERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 878.- SE ADICIONA EL ARTÍCULO 6° BIS DE LA LEY PARA LA PREVENCIÓN SOCIAL DE LA VIOLENCIA Y LA DELINCUENCIA, CON PARTICIPACIÓN CIUDADANA DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.

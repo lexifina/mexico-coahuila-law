@@ -1,0 +1,3 @@
+P.O. 29 DE ENERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 874.- SE ADICIONA LA FRACCIÓN XXII DEL ARTÍCULO 4 DE LA LEY (SIC) SISTEMA ESTATAL PARA LA GARANTÍA DE LOS DERECHOS HUMANOS DE NIÑOS Y NIÑAS DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

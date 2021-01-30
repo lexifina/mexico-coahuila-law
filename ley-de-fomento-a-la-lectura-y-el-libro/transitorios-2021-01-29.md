@@ -1,0 +1,3 @@
+P.O. 29 DE ENERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 887.- SE ADICIONA LA FRACCIÓN VII AL ARTÍCULO 1 Y SE REFORMA EL PRIMER PÁRRAFO DEL ARTÍCULO 8 DE LA LEY DE FOMENTO A LA LECTURA Y EL LIBRO PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

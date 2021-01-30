@@ -9,4 +9,6 @@ III.- Procurar el aprendizaje y practicar los valores más altos del ser humano,
 IV.- Informarse debidamente en materia de sexualidad, considerando no sólo el plano físico sino el afectivo; los riesgos de las enfermedades de transmisión sexual, la salud reproductiva y la planificación familiar;
 V.- Informarse debidamente acerca de los efectos y daños irreversibles a la salud que producen el alcohol, el tabaco y las drogas, y sobre qué hacer para evitar su consumo.
 VI.- A cumplir con las disposiciones normativas y reglamentarias de los programas de desarrollo social, cuando sean beneficiarios de éstos, y
-VII.- Los demás que le impongan otras leyes, reglamentos o disposiciones normativas.
+(ADICIONADA, P.O. 29 DE ENERO DE 2021)
+VII.- Informarse sobre el ámbito político de la entidad y participar activamente en todo aquello que sea de interés en su entorno social; y
+VIII.- Los demás que le impongan otras leyes, reglamentos o disposiciones normativas.
