@@ -1,0 +1,3 @@
+P.O. 12 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 917.- SE MODIFICA LA FRACCIÓN VII Y SE AGREGA LA FRACCIÓN X AL ARTÍCULO 4, SE MODIFICA EL INCISO A DEL ARTÍCULO 19 DE LA LEY DE URGENCIAS MÉDICAS PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

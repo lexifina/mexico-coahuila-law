@@ -1,0 +1,3 @@
+P.O. 12 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 912.- SE ADICIONA UNA FRACCIÓN IV, RECORRIENDO LA ACTUAL, AL ARTÍCULO 36, Y EL CAPÍTULO XI CON LOS ARTÍCULOS 50, 51, 52 Y 53 A LA LEY DE DESAROOLLO ECONÓMICO DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
