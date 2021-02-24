@@ -1,0 +1,3 @@
+P.O. 23 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 1000.- SE REFORMA LA FRACCIÓN V, DEL ARTÍCULO 46-C, DE LA LEY DE ASISTENCIA SOCIAL Y PROTECCIÓN DE DERECHOS DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.

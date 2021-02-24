@@ -1,0 +1,3 @@
+P.O. 23 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 971.- SE ADICIONA EL CAPÍTULO PRIMERO BIS Y LOS ARTÍCULOS DEL 20 BIS AL 20 QUATER A LA LEY DE IGUALDAD ENTRE MUJERES Y HOMBRES EN EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

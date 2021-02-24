@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 23 DE FEBRERO DE 2021)
+Artículo 20 Bis. Acompañamiento sustantivo
+El acompañamiento sustantivo en materia de igualdad es el que se efectúa para:
+I. Cambiar prácticas discriminatorias o tratos diferenciados;
+II. Atender las resoluciones que recaigan a las quejas presentadas contra la administración pública estatal; y
+III. Atender las recomendaciones que efectúa la comisión por quejas de prácticas de desigualdad y discriminación de organizaciones privadas o de particulares.

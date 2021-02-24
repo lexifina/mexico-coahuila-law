@@ -1,0 +1,3 @@
+P.O. 23 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 972.- SE REFORMA EL PRIMER PÁRRAFO DEL ARTÍCULO 43 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
