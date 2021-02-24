@@ -1,0 +1,3 @@
+P.O. 23 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 973.- SE REFORMA FRACCIÓN III Y SE ADICIONA LA FRACCIÓN IV DEL ARTÍCULO 19 DE LA LEY DE IGUALDAD ENTRE MUJERES Y HOMBRES EN EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
