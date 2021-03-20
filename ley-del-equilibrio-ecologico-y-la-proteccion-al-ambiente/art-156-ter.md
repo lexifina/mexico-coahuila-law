@@ -1,3 +1,4 @@
+(DEROGADO TERCER PÁRRAFO, P.O. 24 DE JULIO DE 2020)
 (ADICIONADO, P.O. 15 DE ENERO DE 2019)
 ARTICULO 156 TER.- Además de las atribuciones establecidas en el artículo 10 de esta ley, la Secretaría tendrá a su cargo la implementación de un programa adecuado de sustitución y alternativas viables para reemplazar las bolsas de plástico y popotes por productos degradables o biodegradables, bajo los siguientes lineamientos:
 I. Informar a la sociedad de manera oportuna, así como llevar a cabo campañas de asistencia gratuita para capacitar a los consumidores en general, sobre las posibles alternativas con las que podrán sustituir las bolsas de plástico y popotes no degradables o no biodegradables;
