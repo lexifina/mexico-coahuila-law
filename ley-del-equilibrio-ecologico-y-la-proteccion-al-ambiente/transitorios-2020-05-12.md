@@ -1,0 +1,4 @@
+P.O. 12 DE MAYO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 596.- SE ADICIONAN LA FRACCIÓN V DEL ARTÍCULO 3°, RECORRIÉNDOSE LAS FRACCIONES SUBSECUENTES; LA FRACCIÓN XXVII DEL ARTÍCULO 11, RECORRIÉNDOSE LA FRACCIÓN SUBSECUENTE; Y LA FRACCIÓN XI DEL ARTÍCULO 25, DE LA LEY DEL EQUILIBRIO ECOLÓGICO Y PROTECCIÓN AL AMBIENTE DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- Las presentes adiciones de la fracción V del artículo 3°, la fracción XXVII del artículo 11 y la fracción XI del artículo 25, de la Ley del Equilibrio Ecológico y Protección al Ambiente del Estado de Coahuila de Zaragoza, entrarán en vigor el día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Los Ayuntamientos deberán actualizar, dentro de un periodo máximo de 120 días naturales a partir de la entrada en vigor del presente Decreto, el Programa de Ordenamiento Ecológico municipal con el fin de incluir el plan de arborización municipal.
