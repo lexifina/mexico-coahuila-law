@@ -1,0 +1,9 @@
+P.O. 9 DE JULIO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO 76.- SE REFORMAN: LOS PÁRRAFOS PRIMERO Y SEGUNDO DEL ARTÍCULO 1, LOS ARTÍCULOS 2, 3, 4, 5 Y 6; LOS INCISOS C) Y D) DE LA FRACCIÓN III Y EL PÁRRAFO SEGUNDO DEL ARTÍCULO 8, LOS ARTÍCULOS 9, 11, 12 Y 13, LA FRACCIÓN V DEL ARTÍCULO 14, EL ARTÍCULO 15 Y LAS FRACCIONES XVII Y XVIII DEL ARTÍCULO 18. SE ADICIONAN: LA FRACCIÓN XIX DEL ARTÍCULO 18, LAS FRACCIONES V, VI Y UN ÚLTIMO PÁRRAFO AL ARTÍCULO 26. SE DEROGAN: EL INCISO E) DE LA FRACCIÓN III DEL ARTÍCULO 8 Y EL TERCER PÁRRAFO DEL ARTÍCULO 8; DE LA LEY DEL CENTRO DE CONCILIACIÓN LABORAL DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO - Para dar cumplimiento al artículo 17 de esta Ley, el nombramiento del titular del Centro deberá realizarse dentro de los noventas días siguientes a la entrada en vigor del presente.
+TERCERO.- La Junta de Gobierno deberá instalarse en un plazo no mayor a noventa días, contados a partir del día siguiente de la entrada en vigor del presente decreto.
+CUARTO.- Dentro de los sesenta días siguientes a la instalación de la Junta de Gobierno, esta expedirá el Reglamento Interior del Centro de Conciliación Laboral del Estado de Coahuila de Zaragoza.
+QUINTO.- El Centro deberá entrar en operación, en la misma fecha en que lo haga el Tribunal Laboral del Poder Judicial del Estado de Coahuila de Zaragoza.
+SEXTO.- Las obligaciones que se generen con motivo de la entrada en vigor del presente Decreto se cubrirán con cargo al presupuesto autorizado para los ejecutores de gasto correspondientes, para el presente ejercicio fiscal y los subsecuentes.
+SÉPTIMO.- Se derogan todas las disposiciones que se opongan al presente decreto.
