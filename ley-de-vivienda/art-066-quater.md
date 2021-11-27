@@ -14,5 +14,8 @@ XI. Establecer los mecanismos de evaluación que destaquen la eficiencia y la ef
 (REFORMADA, P.O. 29 DE MAYO DE 2018)
 XII. Proporcionar la información y dar acceso a la documentación que le soliciten la dependencia a la que se encuentre adscrita, la Secretaría de Medio Ambiente, la Secretaría de Finanzas, la Secretaría de Fiscalización y Rendición de Cuentas, el auditor externo, así como a la Auditoría Superior del Estado, para el cumplimiento de sus funciones;
 XIII. Proponer a la Junta de Gobierno, en su caso, las Reglas de Operación, manuales de organización, lineamientos y demás disposiciones de carácter interno;
-XIV. Ejecutar los acuerdos que dicte la Junta de Gobierno, y
-XV. Las demás que señalen las disposiciones que le sean aplicables.
+(REFORMADA, P.O. 26 DE NOVIEMBRE DE 2021)
+XIV. Ejecutar los acuerdos que dicte la Junta de Gobierno;
+(ADICIONADA, P.O. 26 DE NOVIEMBRE DE 2021)
+XV. Certificar los documentos, archivos, trámites y/o expedientes, que se encuentren dentro de los archivos de la Comisión Estatal de Vivienda, y;
+XVI. Las demás que señalen las disposiciones que le sean aplicables.

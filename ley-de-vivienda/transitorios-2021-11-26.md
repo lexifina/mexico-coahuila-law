@@ -1,0 +1,4 @@
+P.O. 26 DE NOVIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO 104.- SE REFORMAN LA FRACCIÓN IX DEL ARTÍCULO 6, LA FRACCIÓN II DEL ARTÍCULO 7, EL PRIMER PÁRRAFO DEL ARTÍCULO 62, LA FRACCIÓN I DEL PRIMER PÁRRAFO DEL ARTÍCULO 65, EL PRIMER PÁRRAFO DEL ARTÍCULO 66 TER, LA FRACCIÓN XIV DEL ARTÍCULO 66 QUÁTER; Y SE ADICIONA LA FRACCIÓN XV, RECORRIÉNDOSE EN SU ORDEN LA ACTUAL XV PARA QUEDAR COMO XVI AL ARTÍCULO 66 QUÁTER DE LA LEY DE VIVIENDA PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Dentro de un plazo de sesenta días hábiles contados a partir de la entrada en vigor del presente decreto, se deberán realizar las modificaciones a los ordenamientos legales y administrativos que resulten necesarias.
