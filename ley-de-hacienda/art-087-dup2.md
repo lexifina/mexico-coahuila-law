@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2021)
+ARTICULO 87-A Los establecimientos que tengan licencia vigente, para la enajenación de bebidas alcohólicas o que presten servicios en los que se expendan dichas bebidas, podrán solicitar a la Secretaria de Finanzas, licencia adicional para entregar bebidas alcohólicas a domicilio, en envase cerrado, cuando así lo requieran sus clientes, la entrega a que se refiere este artículo deberá realizarse en envase cerrado y dentro del mismo horario que refiere la Ley para la Regulación de la Venta y Consumo de Alcohol en el Estado de Coahuila de Zaragoza.
+La entrega a domicilio de las bebidas alcohólicas, podrá realizarse por medio de personal propio de los establecimientos, o a través de las empresas de redes de transporte.
+Esta licencia adicional tendrá vigencia anual, por lo que en su caso deberá solicitarse su revalidación en los primeros tres meses de cada ejercicio fiscal.
