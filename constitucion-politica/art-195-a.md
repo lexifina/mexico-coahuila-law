@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 21 DE ENERO DE 2022)
+Artículo 195-A.- Los hechos materia de las resoluciones de una recomendación, denuncia, queja o informe de la Comisión de Derechos Humanos del Estado de Coahuila podrán ser objeto de acción del juicio local de protección de derechos humanos ante el Tribunal Constitucional Local, a efecto de que, con observancia del debido proceso, determine las obligaciones de las autoridades correspondientes para reparar las violaciones que se acrediten.
