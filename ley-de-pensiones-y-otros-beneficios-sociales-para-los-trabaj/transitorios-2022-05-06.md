@@ -1,0 +1,3 @@
+P.O. 6 DE MAYO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO 225.- SE DEROGA LA FRACCIÓN I DEL ARTÍCULO 45 DE LA LEY DE PENSIONES Y OTROS BENEFICIOS SOCIALES PARA LOS TRABAJADORES AL SERVICIO DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
