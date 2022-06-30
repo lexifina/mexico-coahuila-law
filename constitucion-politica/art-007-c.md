@@ -1,4 +1,0 @@
-(ADICIONADO, P.O. 21 DE ENERO DE 2022)
-Artículo 7º-C.- Las personas tienen el derecho a desarrollar libre y plenamente su personalidad dentro de una comunidad de derechos y deberes en libertad, igualdad y fraternidad.
-La correlación entre derechos y deberes tendrá por objeto garantizar en forma proporcional los derechos de los demás, la seguridad de todas las personas y las justas exigencias del bien común en una sociedad democrática.
-Los derechos humanos no son absolutos. Están sujetos a límites razonables, estrictos y necesarios para el debido funcionamiento de la sociedad democrática.

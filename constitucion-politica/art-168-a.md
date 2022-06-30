@@ -12,8 +12,6 @@ VI. Ser de notoria buena conducta y honorabilidad manifiesta;
 VII. No ser ministro de algún culto religioso, a menos que se separe formal y definitivamente de su ministerio, cuando menos cinco años antes del día de su designación; y
 VIII. No haber sido condenado en sentencia ejecutoria, por delito intencional, ni haber sido inhabilitado o suspendido por más de tres meses como servidor público.
 El Congreso expedirá la ley en que se determine la organización y funcionamiento del Tribunal, así como su procedimiento y los recursos que procedan contra sus resoluciones.
-(ADICIONADO, P.O. 21 DE ENERO DE 2022)
-En la designación de las magistraturas integrantes del Tribunal de Justicia Administrativa del Estado de Coahuila, se observará el principio de paridad de género en los términos que establezca la ley.
 TITULO OCTAVO.
 (REFORMADA SU DENOMINACIÓN, P.O. 21 DE JULIO DE 2006)
 CAPITULO UNICO.
