@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 19 DE AGOSTO DE 2022)
+Artículo 7°-G.- Los derechos no son absolutos y tampoco lo son sus límites razonables, justos y previstos en (sic) ley proporcional.
+En ningún caso se afectará el contenido esencial que fija el núcleo básico que delimita el concepto, alcance y límites de los derechos humanos.
+El principio de proporcionalidad delimitará la validez de las restricciones o permisiones que, en su caso, una norma imponga a determinados derechos y deberes de las personas.
+Las autoridades están obligadas a respetar la proporcionalidad en su actuación de certeza y legalidad que determine sus facultades, atribuciones o deberes oficiales.

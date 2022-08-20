@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 19 DE AGOSTO DE 2022)
+Artículo 7°-M.- Todos los derechos reconocidos en la Constitución Política de los Estados Unidos Mexicanos, en esta Constitución y en los tratados internacionales de derechos humanos suscritos por el Estado Mexicano serán plenamente justiciables y exigibles.
+En ningún caso podrá alegarse falta de norma jurídica o de garantías, que implique su desconocimiento, violación o desprotección.

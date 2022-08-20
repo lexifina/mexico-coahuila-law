@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 19 DE AGOSTO DE 2022)
+Artículo 7°-Y.- El Tribunal Constitucional Local será competente conforme a la ley, para emitir opiniones o decisiones obligatorias acerca de la interpretación de esta Constitución, las Cartas de Derechos y sus Protocolos Adicionales, así como de sus proyectos legislativos.
+En todo caso, los jueces deberán garantizar la máxima publicidad de los juicios contra normas que planteen cuestiones constitucionales o convencionales de derechos humanos.

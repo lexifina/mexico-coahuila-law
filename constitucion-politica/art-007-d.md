@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 19 DE AGOSTO DE 2022)
+Artículo 7°-D.- Todos los seres humanos nacen libres e iguales en dignidad y derechos y, dotados de razón y conciencia, deben comportarse fraternalmente los unos con los otros.
+Todas las personas son libres e iguales en dignidad, derechos y deberes. Las personas se deben entre sí la solidaridad justa y necesaria para vivir en forma libre e igual.
+La libertad consiste en poder hacer todo aquello que no dañe o ponga en riesgo grave a los demás y que no esté explícitamente prohibido por (sic) ley.
+La igualdad consiste en poder tener en igualdad de condiciones las mismas oportunidades, poderes o recursos, para posibilitar el libre desarrollo de la personalidad, sin privilegios, discriminaciones, ni ventajas indebidas. La paridad es una garantía para asegurar condiciones reales de igualdad entre los diferentes géneros en forma progresiva, transitoria y efectiva.
+La seguridad jurídica consiste en la certeza de aplicar normas válidas, ciertas, predecibles y razonables que delimiten la esfera de lo permitido y de lo prohibido por la ley.
+La solidaridad consiste en el deber necesario y proporcional que se deben de manera fraterna las personas para permitir la ayuda mutua, el desarrollo social de la comunidad y la libertad e igualdad en condiciones de mayor protección prevalente a las personas en condiciones de vulnerabilidad.
