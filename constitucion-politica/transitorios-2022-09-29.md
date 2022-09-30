@@ -1,0 +1,8 @@
+P.O. 29 DE SEPTIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 270.- SE REFORMA EL SEGUNDO PÁRRAFO DEL NUMERAL 6 DEL ARTÍCULO 27, EL ARTÍCULO 33, LOS PÁRRAFOS PRIMERO, SEGUNDO INCLUYENDO SUS FRACCIONES Y TERCERO DEL ARTÍCULO 35 Y LA FRACCIÓN V DEL ARTÍCULO 76; SE ADICIONA UN ÚLTIMO PÁRRAFO AL ARTÍCULO 35, Y UN SEGUNDO PÁRRAFO AL ARTÍCULO 77, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- La renovación del Congreso del Estado para la elección del 2023 se regirá conforme a las bases previstas en los artículos 33 y 35 de la Constitución Local.
+Para la composición de las circunscripciones de mayoría relativa a que refiere el artículo 33 de la Constitución del Estado, el Instituto Electoral de Coahuila deberá estar a lo dispuesto por el Instituto Nacional Electoral en el proceso de redistritación 2022 y, en su caso, sus equivalencias que se establezcan conforme a la ley.
+Los partidos políticos deberán cumplir con la postulación paritaria en las candidaturas de mayoría o de representación proporcional para renovar el Congreso del Estado que establezca la ley, para asegurar su cumplimiento para el siguiente proceso electoral del 2023.
+ARTÍCULO TERCERO.- El Congreso del Estado deberá realizar las adecuaciones a las leyes secundarias que resulten necesarias dentro de los 90 días antes de inicio del proceso electoral del 2023, para asegurar el principio de certeza electoral.
+ARTÍCULO CUARTO.- Se derogan todas las disposiciones que se opongan a este Decreto.
