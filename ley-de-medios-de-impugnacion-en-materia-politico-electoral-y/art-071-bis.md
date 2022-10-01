@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2022)
+Artículo 71 Bis. Una vez que se encuentren debidamente integrados, los medios de impugnación relacionados con un proceso electoral local se resolverán en un plazo no mayor de veinte días naturales; aquellos que no lo estén, se resolverán en un plazo máximo de treinta días hábiles, con excepción del recurso de inconformidad, el cual se resolverá en un plazo máximo de quince días hábiles.
+Los plazos para la presentación, sustanciación y resolución de los juicios sobre conflictos laborales entre el Instituto y su personal o entre el Tribunal Electoral y su personal se sujetarán a lo dispuesto en la legislación laboral aplicable, el Reglamento Interior del Instituto y del Tribunal y los Lineamientos que se expidan para tal efecto.
