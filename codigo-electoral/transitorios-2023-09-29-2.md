@@ -1,0 +1,4 @@
+P.O. 29 DE SEPTIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO 526.- SE REFORMAN EL ARTÍCULO 16; LOS PÁRRAFOS SEGUNDO Y TERCERO DEL NUMERAL 1, Y EL NUMERAL 2 DEL ARTÍCULO 17; EL INCISO D) DEL NUMERAL 1 DEL ARTÍCULO 18; EL NUMERAL 3 DEL ARTÍCULO 181 DEL CÓDIGO ELECTORAL PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Se derogan todas las disposiciones en contrario a este Decreto.
