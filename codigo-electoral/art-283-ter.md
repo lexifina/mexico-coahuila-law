@@ -5,3 +5,5 @@ a) Indemnización de la víctima;
 b) Restitución inmediata en el cargo al que fue obligada a renunciar por motivos de violencia;
 c) Disculpa pública, y;
 d) Medidas de no repetición.
+(ADICIONADO, P.O. 29 DE SEPTIEMBRE DE 2023)
+e) Cualquier otra medida que se estime conveniente para llevar a cabo una reparación integral.
