@@ -1,4 +1,0 @@
-P.O. 8 DE ABRIL DE 2022.
-[N. DE E. TRANSITORIOS DEL "DECRETO 213.- SE REFORMA LA FRACCIÓN IX Y SE ADICIONAN LA FRACCIÓN X AL ARTÍCULO 5, LA SECCIÓN IX "CONDECORACIÓN AL MÉRITO A LA SALUD" CON EL ARTÍCULO 14 BIS, AL CAPÍTULO II "DE LAS CONDECORACIONES Y RECONOCIMIENTOS", DE LA LEY DE CONDECORACIONES Y RECONOCIMIENTOS DEL ESTADO DE COAHUILA DE ZARAGOZA".]
-PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial de (sic) Gobierno del Estado.
-SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente decreto.

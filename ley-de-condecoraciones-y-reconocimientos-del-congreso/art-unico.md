@@ -1,4 +1,5 @@
-ARTÍCULO ÚNICO.- Se crea la Ley de Condecoraciones y Reconocimientos del Estado de Coahuila de Zaragoza, para quedar como sigue:
-LEY DE CONDECORACIONES Y RECONOCIMIENTOS DEL ESTADO DE COAHUILA DE ZARAGOZA.
-CAPÍTULO I
+Artículo Único. Se expide el Estatuto del Sistema de Evaluación del Estado de Guanajuato, para quedar como sigue:
+ESTATUTO DEL SISTEMA DE EVALUACIÓN DEL ESTADO DE GUANAJUATO
+Capítulo I
 Disposiciones Generales
+Objeto
