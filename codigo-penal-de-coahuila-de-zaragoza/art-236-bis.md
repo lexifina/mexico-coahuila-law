@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2023)
+Artículo 236 Bis (Pautas específicas de aplicación). Para los efectos de este código se entiende por delito de acecho, seguir, vigilar o comunicarse persistentemente con alguien en contra de su voluntad, atentando contra su seguridad, libertad e intimidad. Es un patrón de atención repetida y no deseada, acoso no sexual, contacto o cualquier otra conducta dirigida a una persona específica que causaría que una persona razonable sienta miedo o temor.
+La conducta debe ser reiterada, al menos en dos ocasiones, y deberá alterar la vida normal de la víctima, a tal grado que esta, por el temor, angustia, intranquilidad o zozobra que le provoque, se vea obligada a cambiar su itinerario normal, hábitos, costumbres, número de teléfono, correo electrónico, perfiles de redes sociales, su lugar de residencia o de trabajo.
+Este delito se perseguirá por querella.
