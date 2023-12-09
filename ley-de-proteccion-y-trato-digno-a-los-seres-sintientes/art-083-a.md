@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2017)
-Artículo 83 A.- La Comisión deberá constituir Comités Regionales que tendrán por objeto dar seguimiento al cumplimiento de los acuerdos tomados por los municipios en materia de protección y trato digno a los animales, así como al cumplimiento de la legislación en la materia y de su reglamentación por parte de las autoridades competentes, y las demás funciones que determine la propia Comisión.
-Los Comités Regionales deberán conformarse con representantes de los municipios que integran la región, asociaciones protectoras de animales y rescatistas independientes de animales.
+(REFORMADO, P.O. 8 DE DICIEMBRE DE 2023)
+Artículo 83-A.- La Comisión deberá constituir Comités Regionales que tendrán por objeto dar seguimiento al cumplimiento de los acuerdos tomados por los municipios en materia de protección y trato digno a los seres sintientes, así como al cumplimiento de la legislación en la materia y de su reglamentación por parte de las autoridades competentes, y las demás funciones que determine la propia Comisión.
+Los Comités Regionales deberán conformarse con representantes de los municipios que integran la región, asociaciones protectoras de seres sintientes y rescatistas independientes de seres sintientes.

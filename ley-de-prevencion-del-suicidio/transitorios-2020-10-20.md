@@ -1,3 +1,0 @@
-P.O. 20 DE OCTUBRE DE 2020.
-[N. DE E. TRANSITORIO DEL "DECRETO 756.- SE REFORMA: EL ARTÍCULO 1°, LA FRACCIÓN III DEL ARTÍCULO 3° Y EL ARTÍCULO 16; Y SE ADICIONA: LA FRACCIÓN IV AL ARTÍCULO 5° DE LA LEY DE PREVENCIÓN DEL SUICIDIO PARA EL ESTADO DE COAHUILA DE ZARAGOZA".]
-PRIMERO (SIC).- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

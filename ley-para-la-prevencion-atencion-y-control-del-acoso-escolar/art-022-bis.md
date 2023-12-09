@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE ENERO DE 2020)
+Artículo 22 Bis. Se establecerán los mecanismos gratuitos de asesoría, orientación, reporte de casos y de protección para las niñas, niños, adolescentes y jóvenes que estén involucrados en casos de violencia, acoso o maltrato escolar en cualquier modalidad, así como los mecanismos remotos de recepción a través de una línea pública de atención telefónica y por medios electrónicos.

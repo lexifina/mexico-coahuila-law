@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE ENERO DE 2020)
+Artículo 30 Bis. Los reglamentos interiores de las instituciones que refiere la Ley Estatal de Educación, deberán especificar derechos, prohibiciones y obligaciones tendientes a prevenir y eliminar el acoso escolar, a través de medidas de carácter disuasivo, correctivo y educativo, y en su caso, establecer las sanciones a aplicar en cada caso, tomando como parámetro lo estipulado en la presente Ley.

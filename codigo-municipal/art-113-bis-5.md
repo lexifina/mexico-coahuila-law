@@ -5,4 +5,6 @@ II. Elaborar propuestas de programas o planes que generen y preserven el orden p
 III. Proponer estrategias para la máxima difusión de las campañas de prevención de delitos, así como la difusión de los operativos de tránsito y prevención de accidentes viales;
 IV. Emitir opinión en relación con los programas de seguridad pública y tránsito;
 V. Proponer acciones de prevención de la violencia con perspectiva de género para la elaboración de políticas públicas municipales,
-VI. Las demás que le señale el Ayuntamiento, este código u otras disposiciones aplicables.
+(ADICIONADA, P.O. 8 DE DICIEMBRE DE 2023)
+VI. Proponer políticas públicas de seguridad para integrar a los seres sintientes deambulantes, comunitarios o en posesión de los centros de control animal que muestren aptitudes de servicio para la seguridad.
+VII. Las demás que le señale el Ayuntamiento, este código u otras disposiciones aplicables.
