@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- En un plazo no mayor de noventa días naturales a partir de la entrada en vigor de este Decreto, la Secretaría deberá expedir el reglamento con las medidas sanitarias y mercantiles para evitar la venta de falsificadores de productos y sus derivados de la miel de abeja.
