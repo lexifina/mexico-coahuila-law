@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Ejecutivo del Estado deberá emitir las disposiciones reglamentarias a esta ley, en un plazo de hasta ciento ochenta días naturales contados a partir de la entrada en vigor de la presente ley.
