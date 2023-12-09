@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley para la Adaptación y Mitigación a los Efectos del Cambio Climático en el Estado de Coahuila de Zaragoza, publicada en el Periódico Oficial del Gobierno del Estado el 25 de enero de 2013.
