@@ -1,9 +1,11 @@
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2017)
 Artículo 23-B.- El Órgano de Gobierno de la Procuraduría estará integrado de la siguiente manera:
-I. Un Presidente, que será la persona titular del Poder Ejecutivo;
+(REFORMADA, P.O. 26 DE DICIEMBRE DE 2023)
+I. Un Presidente, que será la persona titular de la Secretaría de Gobierno;
 II. Un Secretario Técnico, que será el Procurador o Procuradora;
 III. Por ocho vocales, que serán las personas titulares de:
-a. La Secretaría de Gobierno;
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2023)
+a. La Secretaría de las Mujeres;
 b. La Secretaría de Inclusión y Desarrollo Social;
 c. La Secretaría de Educación;
 d. La Secretaría de Finanzas;
