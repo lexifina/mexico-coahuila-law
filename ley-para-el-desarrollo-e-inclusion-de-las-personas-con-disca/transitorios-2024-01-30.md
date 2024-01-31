@@ -1,0 +1,3 @@
+P.O. 30 DE ENERO DE 2024.
+[N. DE E. TRANSITORIO DEL "DECRETO 680.- SE ADICIONA LA FRACCIÓN XI, AL ARTÍCULO 18 DE LA LEY PARA EL DESARROLLO E INCLUSIÓN DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+UNICO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

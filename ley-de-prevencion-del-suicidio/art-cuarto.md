@@ -1,0 +1,20 @@
+ARTÍCULO CUARTO.- Todo lo que no se encuentre previsto en la presente Ley se estará a lo que determine la Ley Estatal de Salud y el Reglamento de esta Ley.
+DADO en la Ciudad de Saltillo, Coahuila de Zaragoza, a los doce días del mes de marzo del año dos mil diecinueve.
+DIPUTADO PRESIDENTE
+JAIME BUENO ZERTUCHE
+(RÚBRICA)
+DIPUTADO SECRETARIO
+JESÚS ANDRÉS LOYA CARDONA
+(RÚBRICA)
+DIPUTADO SECRETARIO
+EDGAR GERARDO SÁNCHEZ GARZA
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 4 de abril de 2019.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+ING. MIGUEL ÁNGEL RIQUELME SOLÍS
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+ING. JOSÉ MARÍA FRAUSTRO SILLER
+(RÚBRICA)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

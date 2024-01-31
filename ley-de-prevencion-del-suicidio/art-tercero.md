@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- La Secretaría de Salud deberá emitir los protocolos necesarios y el Reglamento a que se refiere esta Ley en su Artículo 7°, Fracción VI, a más tardar 60 (sesenta) días después de la entrada en vigor del presente Decreto.
