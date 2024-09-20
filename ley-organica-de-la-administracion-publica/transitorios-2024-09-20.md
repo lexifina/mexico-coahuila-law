@@ -1,0 +1,11 @@
+P.O. 20 DE SEPTIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 101.- SE REFORMA LA FRACCIÓN XVI DEL ARTÍCULO 18 Y EL ARTÍCULO 33 QUÁTER, DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+PRIMERO.- Publíquese en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- El presente decreto entrará en vigor el día de su publicación en el Periódico Oficial del Gobierno del Estado.
+TERCERO.- Cuando en la Ley de Asociaciones Público Privadas para el Estado de Coahuila de Zaragoza, otras leyes, reglamentos, lineamientos o cualquier otra disposición administrativa, así como en procedimientos ante autoridades, se haga referencia o se establezcan facultades y obligaciones a la Secretaría de Inversión Pública Productiva, se entenderán conferidas o impuestas, según sea el caso, a la Secretaría de Vinculación Ciudadana, Proyectos de Innovación Social e Inversión Público Productiva.
+CUARTO.- Los asuntos en trámite que se encuentren pendientes en la Secretaría de Inversión Pública Productiva, se continuarán hasta su conclusión, por la Secretaría de Vinculación Ciudadana, Proyectos de Innovación Social e Inversión Público Productiva.
+QUINTO.- En un plazo no mayor de ciento ochenta días naturales, contados a partir de la entrada en vigor de este decreto, se deberá efectuar la armonización de los ordenamientos legales y administrativos que correspondan.
+SEXTO.- El Reglamento Interior de la Secretaría de Vinculación Ciudadana, Proyectos de Innovación Social e Inversión Pública Productiva, se deberá expedir dentro del plazo de noventa días hábiles, contados a partir de la entrada en vigor del presente decreto.
+SÉPTIMO.- La Secretaría de Finanzas, deberá realizar las gestiones necesarias para las adecuaciones presupuestales, con el fin de dar cumplimiento al presente decreto, de conformidad con las disposiciones legales aplicables.
+OCTAVO.- La Secretaría de Fiscalización y Rendición de Cuentas, en coordinación con la Secretaría de Vinculación Ciudadana, Proyectos de Innovación Social e Inversión Pública Productiva, y de las unidades administrativas que cambien de adscripción en cumplimiento al presente Decreto, deberán llevar a cabo las gestiones necesarias para los efectos de la entrega recepción que corresponda.
+NOVENO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
