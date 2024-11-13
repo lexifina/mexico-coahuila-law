@@ -1,0 +1,18 @@
+ARTÍCULO TERCERO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+DADO en la Ciudad de Saltillo, Coahuila de Zaragoza, a los veintinueve días del mes de octubre del año dos mil veinticuatro.
+DIPUTADO PRESIDENTE JESÚS ALFREDO PAREDES LÓPEZ
+(RÚBRICA)
+DIPUTADA SECRETARIA
+OLIVIA MARTÍNEZ LEYVA
+(RÚBRICA)
+DIPUTADA SECRETARIA
+BEATRIZ EUGENIA FRAUSTRO DÁVILA
+(RÚBRICA)
+IMPRÍMASE, COMUNÍQUESE Y OBSÉRVESE
+Saltillo, Coahuila de Zaragoza, a 8 de noviembre de 2024.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
+ING. MANOLO JIMÉNEZ SALINAS
+(RÚBRICA)
+EL SECRETARIO DE GOBIERNO
+LIC. OSCAR PIMENTEL GONZÁLEZ
+(RÚBRICA)

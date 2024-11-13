@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley en Materia de Desaparición de Personas para el Estado de Coahuila de Zaragoza, publicada en el Periódico Oficial del Gobierno del Estado, el viernes 14 de diciembre de 2018.
