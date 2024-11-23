@@ -12,6 +12,8 @@ Los integrantes del Consejo de Participación Ciudadana a que se refieren los in
 La sesión de instalación del Comité Coordinador del Sistema Estatal, se llevará a cabo dentro del plazo de quince días naturales posteriores a que se haya integrado en su totalidad el Consejo de Participación Ciudadana en los términos de los párrafos anteriores.
 La Secretaría Ejecutiva deberá iniciar sus operaciones, a más tardar a los treinta días siguientes a la sesión de instalación del Comité Coordinador del Sistema Estatal.
 CUARTO.- El Ejecutivo Estatal a través de la Secretaría de Finanzas y la Secretaría de rendición de Cuentas y el Congreso del Estado, proveerán los recursos humanos, financieros y materiales correspondientes, para el cumplimiento del presente decreto, en términos de las disposiciones aplicables.
+(ADICIONADO, P.O. 22 DE NOVIEMBRE DE 2024)
+QUINTO.- Por única vez, para el proceso de selección que se convoque en el año 2024 y que implica la designación ordinaria de dos integrantes del Consejo de Participación Ciudadana, la Comisión de Selección elegirá a una persona por un período de cuatro años y a otra por cinco años.
 DADO en el Salón de Sesiones del Congreso del Estado, en la Ciudad de Saltillo, Coahuila de Zaragoza, a los once días del mes de julio del año dos mil diecisiete.
 DIPUTADO PRESIDENTE
 SERGIO GARZA CASTILLO
