@@ -1,0 +1,3 @@
+P.O. 3 DE DICIEMBRE DE 2024.
+[N. DE E. TRANSITORIO DEL "DECRETO 136.- SE REFORMA EL PÁRRAFO PRIMERO DEL ARTÍCULO 298; EL ARTÍCULO 299 Y EL ARTÍCULO 300; SE ADICIONA EL ARTÍCULO 302 BIS, TODOS DEL CÓDIGO PENAL DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
