@@ -3,29 +3,34 @@ ARTICULO 157-J. Los servicios a que se refiere esta Sección causarán derechos 
 TARIFA
 (REFORMADA [N. DE E. ADICIONADA], P.O. 26 DE DICIEMBRE DE 2023)
 I. Por paquete de titulación:
-a. Técnico Superior Universitario $3,500.00 (TRES MIL QUINIENTOS PESOS 00/100 M.N.).
-b. Especialidades $4,000.00 (CUATRO MIL PESOS 00/100 M.N.).
-(REFORMADA [N. DE E. ADICIONADA], P.O. 26 DE DICIEMBRE DE 2023)
-II. Constancia de Estudios $100.00 (CIEN PESOS 00/100 M.N.).
+(REFORMADO, P.O. 24 DE DICIEMBRE DE 2024)
+a. Técnico Superior Universitario $3,710.00 (TRES MIL SETECIENTOS DIEZ PESOS 00/100 M.N.).
+(REFORMADO, P.O. 24 DE DICIEMBRE DE 2024)
+b. Especialidades $4,240.00 (CUATRO MIL DOSCIENTOS CUARENTA PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+II. Constancia de Estudios $106.00 (CIENTO SEIS PESOS 00/100 M.N.).
 (REFORMADA [N. DE E. ADICIONADA], P.O. 26 DE DICIEMBRE DE 2023)
 III. Cárdex o Certificado:
-a. Técnico Superior $1,500.00 (UN MIL QUINIENTOS PESOS 00/100 M.N.).
-b. Especialidades $2,000.00 (DOS MIL PESOS 00/100 M.N.).
-c. Reposición $500.00 (QUINIENTOS PESOS 00/100 M.N.).
-(REFORMADA [N. DE E. ADICIONADA], P.O. 26 DE DICIEMBRE DE 2023)
-IV. Curso de Titulación $2,000.00 (DOS MIL PESOS 00/100 M.N.).
-(REFORMADA, P.O. 26 DE DICIEMBRE DE 2023)
-V. Inscripción $500.00 (QUINIENTOS PESOS 00/100 M.N.).
-(REFORMADA [N. DE E. ADICIONADA], P.O. 26 DE DICIEMBRE DE 2023)
-VI. Ficha de examen de admisión $200.00 (DOSCIENTOS PESOS 00/100 M.N.).
-(REFORMADA, P.O. 26 DE DICIEMBRE DE 2023)
-VII. Colegiatura $800.00 (OCHOCIENTOS PESOS 00/100 M.N.).
-(REFORMADA [N. DE E. ADICIONADA], P.O. 26 DE DICIEMBRE DE 2023)
-VIII. Constancia de liberación del servicio social $100.00 (CIEN PESOS 00/100 M.N.).
-(ADICIONADA, P.O. 26 DE DICIEMBRE DE 2023)
-IX. Credencial estudiantil $100.00 (CIEN PESOS 00/100 M.N.).
-(ADICIONADA, P.O. 26 DE DICIEMBRE DE 2023)
-X. Curso de formación de Mediadores Universitarios $200.00 (DOSCIENTOS PESOS 00/100 M.N.).
+(REFORMADO, P.O. 24 DE DICIEMBRE DE 2024)
+a. Técnico Superior $1,590.00 (UN MIL QUINIENTOS NOVENTA PESOS 00/100 M.N.).
+(REFORMADO, P.O. 24 DE DICIEMBRE DE 2024)
+b. Especialidades $2,120.00 (DOS MIL CIENTO VEINTE PESOS 00/100 M.N.).
+(REFORMADO, P.O. 24 DE DICIEMBRE DE 2024)
+c. Reposición $530.00 (QUINIENTOS TREINTA PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+IV. Curso de Titulación $2,120.00 (DOS MIL CIENTO VEINTE PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+V. Inscripción $530.00 (QUINIENTOS TREINTA PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+VI. Ficha de examen de admisión $212.00 (DOSCIENTOS DOCE PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+VII. Colegiatura $848.00 (OCHOCIENTOS CUARENTA Y OCHO PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+VIII. Constancia de liberación del servicio social $106.00 (CIEN SEIS PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+IX. Credencial estudiantil $106.00 (CIENTO SEIS PESOS 00/100 M.N.).
+(REFORMADA, P.O. 24 DE DICIEMBRE DE 2024)
+X. Curso de formación de Mediadores Universitarios $212.00 (DOSCIENTOS DOCE PESOS 00/100 M.N.).
 (ADICIONADA [N. DE E. REUBICADA], P.O. 26 DE DICIEMBRE DE 2023)
 XI. Por la impartición de cursos, diplomados, foros, talleres, licenciaturas, especialidades, capacitaciones para el trabajo, maestrías y adiestramientos relacionados con el área de seguridad y procuración de justicia.
 (ADICIONADA [N. DE E. REUBICADA], P.O. 26 DE DICIEMBRE DE 2023)
