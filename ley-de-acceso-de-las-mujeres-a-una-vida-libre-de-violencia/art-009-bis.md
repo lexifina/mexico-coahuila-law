@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 18 DE ABRIL DE 2025)
+Artículo 9 Bis. Para efectos del hostigamiento o el acoso sexual, corresponde al gobierno estatal:
+I. Reivindicar la dignidad y el respeto de las mujeres en todos los ámbitos de su vida;
+II. Establecer un mecanismo que favorezca su erradicación en diversos centros tanto educativos, sociales y laborales, ya sean de orden público o privado, suscribiendo los acuerdos necesarios para tal fin;
+III. Seguir de manera puntual, los mecanismos, procesos y procedimientos, establecidos en esta ley, la Ley general de Responsabilidades y las demás, que tengan por objeto sancionar el hostigamiento y acoso sexual en el ámbito escolar y laboral, e inhibir su comisión. Los elementos que se recaben en los mismos, servirán para la presentación de la denuncia ante las autoridades correspondientes, a quienes se les deberá notificar de manera inmediata;
+IV. Proporcionar a quien sea víctima de hostigamiento o acoso sexual asesoría jurídica, atención médica y psicológica especializada y gratuita con el objeto de reparar el daño causado;
+V. Garantizar el seguimiento de los procesos pertinentes, a las personas superiores jerárquicas de la persona hostigadora o acosadora en el ámbito laboral o escolar, cuando sean omisas en recibir y/o dar curso a una queja, a fin de que se apliquen las sanciones penales y/o administrativas que correspondan;
+VI. Tratándose de víctimas mujeres menores de dieciocho años de edad, deberán implementar, por personal especializado, mecanismos para detectar, investigar y sancionar la violencia en el ámbito escolar o laboral, los cuales serán acordes con los principios de interés superior de la niñez y libre desarrollo de la personalidad;
