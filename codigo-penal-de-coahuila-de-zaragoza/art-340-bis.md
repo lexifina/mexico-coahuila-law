@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 3 DE JUNIO DE 2025)
+Artículo 340 bis (Incendio en zona urbana)
+Se impondrá de dos a seis años de prisión y de cuatrocientos a ochocientos días multa, a quien dolosamente y sin contar con el permiso o autorización de la autoridad competente para otorgarlo, provoque un incendio en un inmueble ubicado en zona urbana, propiedad o en posesión de una persona física o jurídica, de un ente público estatal o municipal y federal, cuando este se encuentre administrado por el Estado.
+Se aplicará la sanción prevista en el párrafo anterior, a quien dolosamente y sin contar con el permiso o autorización de la autoridad competente para otorgarlo, incendie maleza o cualquier material combustible en áreas públicas o de uso común ubicadas en zona urbana.
+Cuando se incendie a propósito uno o más árboles en algún parque o área verde de uso común que se ubiquen en una zona urbana del Estado o de cualquiera de sus municipios, se aplicará, según sea el caso, el artículo 420, 421 y 422 de este Código.
