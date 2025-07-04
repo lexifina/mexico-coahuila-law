@@ -4,7 +4,8 @@ I. En materia competencial:
 1. La convocatoria de la elección judicial, según corresponda, se realizará por el Congreso del Estado, o en sus recesos, por la Diputación Permanente, previa información de los cargos judiciales a elegir por parte del Poder Judicial, en los términos que establezca esta Constitución y las demás leyes aplicables;
 2. La inscripción de aspirantes, elegibilidad, participación y evaluación conforme a la garantía del perfil judicial idóneo, le corresponderá al Comité de Evaluación de cada poder que se conformen en los términos que establezca esta Constitución y la Ley;
 3. La selección de los listados de las candidaturas para elegir los cargos judiciales populares, le corresponderá de manera exclusiva a los poderes ejecutivo, legislativo y judicial, en los términos previstos por esta Constitución y las demás leyes aplicables;
-4. La preparación, organización, cómputo y calificación de la jornada del proceso judicial electoral le corresponderá de manera exclusiva al Instituto Electoral de Coahuila, en los términos que establezca esta Constitución y las demás leyes aplicables; y
+(REFORMADO, P.O. 4 DE JULIO DE 2025)
+4. La preparación, organización, cómputo y calificación de la jornada del proceso judicial electoral corresponderá al Instituto Electoral de Coahuila. Lo anterior en coordinación con el Instituto Nacional Electoral en el marco de sus respectivas competencias, en términos de los (sic) previsto en la Constitución Federal, la Constitución y las leyes aplicables.
 5. El (sic) Tribunal Electoral del Estado le corresponderá conocer y resolver las controversias que únicamente presenten las personas aspirantes y/o candidatas conforme a la Ley.
 II. En materia procedimental:
 1. El proceso electoral de la elección judicial se realizará mediante mecanismos públicos, abiertos, transparentes, inclusivos y accesibles previstos en la Ley para asegurar, en igualdad de condiciones, la participación de las personas interesadas que reúnan los requisitos establecidos en esta Constitución y demás leyes aplicables;
@@ -22,7 +23,8 @@ III. En materia de derechos:
 5. Las personas electas tendrán derecho a las garantías judiciales previstas en esta Constitución y demás leyes aplicables, para asegurar su independencia judicial.
 IV. En materia de prohibiciones:
 1. Se prohíben los actos anticipados de campaña. La ley establecerá las sanciones correspondientes;
-2. Se prohíbe cualquier financiamiento público y/o privado. Solo se permiten los gastos personales de las personas candidatas que serán autorizados, auditados y sancionados por el Instituto Electoral de Coahuila, en los términos previstos por la Ley;
+(REFORMADO, P.O. 4 DE JULIO DE 2025)
+2. Se prohíbe cualquier financiamiento público o privado. Solo se permiten los gastos personales de las personas candidatas que serán fiscalizados por el Instituto Nacional Electoral. El Instituto Electoral de Coahuila podrá fiscalizarlos cuando así lo determine el Instituto Nacional Electoral, en los términos previstos por las disposiciones jurídicas aplicables. En todo caso, el organismo estatal deberá operar conforme a los reglamentos, acuerdos, lineamientos y directrices que aquél emita.
 3. Se prohíbe la contratación por sí o por interpósita persona de espacios en radio y televisión o de cualquier otro medio de comunicación para promocionar las candidaturas;
 4. Los partidos políticos tienen prohibido participar en cualquier etapa del proceso judicial. En ningún caso, podrán intervenir, participar, observar o hacer proselitismo en el proceso electoral judicial, directa o indirectamente, ni mucho menos podrán expresarse, a través de sus dirigentes, liderazgos y/o militantes, a favor o en contra de las personas candidatas que participen en el proceso;
 5. Los funcionarios públicos deberán observar el principio de neutralidad gubernamental previsto en esta Constitución y demás leyes aplicables; y

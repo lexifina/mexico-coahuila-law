@@ -1,0 +1,5 @@
+P.O. 4 DE JULIO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 263.- SE REFORMA EL NUMERAL 4 DE LA FRACCIÓN I, EL NUMERAL 2 DE LA FRACCIÓN IV DEL ARTÍCULO 27 BIS Y LA FRACCIÓN VII DEL ARTÍCULO 138, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE COAHUILA DE ZARAGOZA; Y SE REFORMAN LOS NUMERALES 1, 10 Y 11 DE LA FRACCIÓN I DEL ARTÍCULO TERCERO TRANSITORIO; Y EL PRIMER Y TERCER PÁRRAFO DEL ARTÍCULO CUARTO TRANSITORIO DEL DECRETO NÚMERO 218 POR EL QUE SE REFORMA LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE COAHUILA DE ZARAGOZA, PUBLICADO EN EL PERIÓDICO OFICIAL DEL GOBIERNO DEL ESTADO EL 20 DE DICIEMBRE DE 2024".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO. En el Proceso Judicial Electoral Extraordinario 2024-2025 iniciado el 20 de diciembre de 2024 en el Estado, se aplicarán los lineamientos o directrices en materia de fiscalización de candidaturas judiciales que emita el Instituto Nacional Electoral.
+TERCERO. Se derogan y quedan sin efecto alguno todas las disposiciones que se opongan y contravengan este Decreto.
