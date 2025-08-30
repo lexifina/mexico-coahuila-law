@@ -1,0 +1,3 @@
+P.O. 29 DE AGOSTO DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO 282.- SE REFORMA LA FRACCIÓN LI, RECORRIENDO LA SUBSECUENTE DEL ARTÍCULO 3 DE LA LEY DEL INSTITUTO COAHUILENSE DE LAS PERSONAS ADULTAS MAYORES".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
