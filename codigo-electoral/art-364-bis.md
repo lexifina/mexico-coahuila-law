@@ -11,16 +11,19 @@ f) Informar trimestralmente al Consejo, sobre el avance en el cumplimiento de lo
 g) Establecer la vinculación con las instancias gubernamentales, observatorios de paridad, organizaciones no gubernamentales, asociaciones civiles y demás organizaciones, con el fin de realizar actividades de difusión de la paridad, igualdad e inclusión;
 h) Atraer a su conocimiento cualquier asunto relacionado con su objeto o misión;
 i) Opinar en cualquier asunto relacionado con sus atribuciones;
-j) Generar la información y estudios necesarios para proponer al Consejo General políticas y lineamientos en materia de paridad, igualdad e inclusión, así como las acciones afirmativas necesarias para lograrlo;
+(REFORMADO, P.O. 29 DE AGOSTO DE 2025)
+j) Generar la información y estudios necesarios para proponer al Consejo General políticas y lineamientos en materia de paridad, igualdad e inclusión, así como las acciones afirmativas necesarias para el buen funcionamiento del Instituto;
 k) Dar seguimiento a las acciones implementadas por el Instituto y los actores políticos para garantizar el acceso a la información sin discriminación alguna;
 l) Proponer la revisión y actualización de los documentos que regulan la actuación del personal del Instituto en materia de igualdad, paridad e inclusión;
 m) Opinar respecto del contenido e imagen de las publicaciones institucionales, los programas y campañas informativas y de difusión implementadas por el Instituto en materia de género, igualdad, paridad, inclusión y no discriminación;
-n) Proponer al Consejo General, los manuales, protocolos, lineamientos y reglamentos necesarios para la promoción de la paridad, igualdad e inclusión, así como sus actualizaciones;
+(REFORMADO, P.O. 29 DE AGOSTO DE 2025)
+n) Proponer al Consejo General, los manuales, protocolos, lineamientos y reglamentos necesarios para la promoción de la paridad, igualdad e inclusión, dirigidos a la ciudadanía, así como sus actualizaciones;
 o) Revisar los documentos de planeación institucional estratégica y operativa y proponer la transversalidad de la perspectiva de género y el enfoque de igualdad e inclusión en su contenido;
 p) Revisar la implementación de la perspectiva de género y el enfoque de igualdad e inclusión, en las tareas institucionales;
 q) Supervisar las acciones, competencia del Instituto, relativas a la difusión, promoción y formación en materia de equidad de género, igualdad e inclusión, dirigidas a los miembros del Servicio Profesional Electoral Nacional y al personal de la Rama Administrativa;
 r) Supervisar los procesos institucionales que favorecen la participación y representación política de las mujeres;
 s) Supervisar la implementación de los mecanismos que favorecen una cultura institucional incluyente, no discriminatoria y no sexista en el Instituto;
-t) Supervisar los procesos institucionales que favorecen la participación y representación política de las mujeres;
+(REFORMADO, P.O. 29 DE AGOSTO DE 2025)
+t) Realizar diagnósticos periódicos y estudios exahustivos sobre la participación política de los grupos en situación de vulnerabilidad;
 u) Supervisar la implementación de los mecanismos que favorecen una cultura institucional incluyente, no discriminatoria y no sexista en el Instituto; y
 v) Las demás que le confiera el Consejo General, este Código y demás disposiciones aplicables.
