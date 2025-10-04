@@ -1,0 +1,3 @@
+P.O. 3 DE OCTUBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO 293.- SE ADICIONA UN TERCER PÁRRAFO A LA FRACCIÓN IX DEL ARTÍCULO 36 DE LA LEY PARA LA REGULACIÓN DE LA VENTA Y CONSUMO DE ALCOHOL EN EL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
