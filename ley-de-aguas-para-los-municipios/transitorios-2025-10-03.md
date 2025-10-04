@@ -1,0 +1,3 @@
+P.O. 3 DE OCTUBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO 299.- SE ADICIONA LA FRACCIÓN XXII AL ARTÍCULO 21 Y UN SEGUNDO PÁRRAFO AL ARTÍCULO 105 DE LA LEY DE AGUAS PARA LOS MUNICIPIOS DEL ESTADO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
