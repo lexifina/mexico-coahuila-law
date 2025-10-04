@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2025)
+ARTÍCULO 192 Bis. La persona titular de la Presidencia Municipal, con autorización del Ayuntamiento, podrá disponer de oficinas de enlace para la gestoría, prestación y seguimiento de servicios públicos y administrativos que proporcione el municipio a fin de optimizar la cercanía territorial con las y los habitantes. Su establecimiento en las localidades urbanas y/o rurales se determinará en función de las características socio-económicas del municipio, su capacidad económica y las necesidades de la población.
