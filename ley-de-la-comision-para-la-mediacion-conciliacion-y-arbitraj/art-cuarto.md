@@ -1,0 +1,2 @@
+ARTÍCULO CUARTO. Los bienes muebles e inmuebles y demás recursos materiales, financieros y humanos del organismo público autónomo denominado Comisión Coahuilense de Conciliación y Arbitraje Médico que se extingue, pasarán a formar parte de la Secretaría de Finanzas, la cual destinará a la Secretaría de Salud en los términos de la normatividad aplicable.
+Al personal de la Comisión Coahuilense de Conciliación y Arbitraje Médico se le respetarán sus derechos laborales.

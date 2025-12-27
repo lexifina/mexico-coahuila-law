@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Se declara la extinción del organismo público autónomo denominado Comisión Coahuilense de Conciliación y Arbitraje Médico, para lo cual se deberá llevar a cabo su liquidación en los términos de las leyes aplicables y con la intervención de la Secretaría de Finanzas y Fiscalización y Rendición de Cuentas que conforme a derecho corresponda.

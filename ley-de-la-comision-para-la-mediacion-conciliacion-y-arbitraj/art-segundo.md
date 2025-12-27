@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la ley de Conciliación y Arbitraje Médico para el Estado de Coahuila de Zaragoza, publicada en el periódico oficial el día doce de abril de dos mil trece, y demás disposiciones que sean contrarias a la presente Ley.

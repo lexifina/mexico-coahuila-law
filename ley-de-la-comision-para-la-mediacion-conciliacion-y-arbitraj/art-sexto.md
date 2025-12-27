@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. Las referencias hechas en otras disposiciones legales y administrativas a la Comisión Coahuilense de Conciliación y Arbitraje Médico, se entenderán hechas a la Comisión de Mediación, Conciliación y Arbitraje Médico para el Estado de Coahuila de Zaragoza.
