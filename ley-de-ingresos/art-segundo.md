@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Para los efectos de esta Ley, no se consideran ingresos del ejercicio, los excedentes fiscales del ejercicio anterior, aun cuando formen parte del Presupuesto de Egresos para el mismo ejercicio fiscal.

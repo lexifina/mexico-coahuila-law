@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- En caso de que durante el ejercicio fiscal 2026, se obtengan mayores ingresos a los presupuestados en las (sic) presente Ley, dichos excedentes deberán ajustarse a lo que apruebe el Congreso del Estado, a través del Presupuesto de Egresos para el ejercicio 2026.
