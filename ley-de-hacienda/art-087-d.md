@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2024)
-ARTICULO 87-D. Los establecimientos referidos en el artículo anterior, que cuenten (sic) la certificación de incorporación al programa de Consumo Consciente, podrán solicitar autorización a la Secretaría de Finanzas para el uso de hasta dos horas adicionales en su horario de cierre por día, lo anterior, sin perjuicio de que en cualquier momento la autorización del uso de horario por el consumo consciente pueda ser revocada, de conformidad con lo establecido en el artículo 9, fracción VII de la Ley para la Regulación de la Venta y Consumo de Alcohol en el Estado de Coahuila de Zaragoza.
+ARTICULO 87-D.- (DEROGADO, P.O. 30 DE DICIEMBRE DE 2025)

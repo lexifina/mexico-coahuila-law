@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2024)
-ARTICULO 87-F. En los casos en que se autorice la ampliación de horario y/o la apertura de los días domingo, los establecimientos podrán hacer uso de aperturas especiales, previo pago de la licencia anual respectiva, la cual causará derechos a razón del 5% de la tarifa establecida en el artículo 87 de esta ley, según el establecimiento de que se trate, el cual deberá realizarse a más tardar el 31 de enero de cada año.
+ARTICULO 87-F.- (DEROGADO, P.O. 30 DE DICIEMBRE DE 2025)
