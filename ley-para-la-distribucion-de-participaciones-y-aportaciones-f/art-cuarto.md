@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Los pagos de las participaciones y aportaciones a los Municipios, a que se refiere la presente Ley, deberán ajustarse a lo dispuesto por la fracción IV del artículo 115 de la Constitución Política de los Estados Unidos Mexicanos, así como a la Ley de Coordinación Fiscal.

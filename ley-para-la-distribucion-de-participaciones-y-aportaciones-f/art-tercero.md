@@ -1,0 +1,2 @@
+ARTICULO TERCERO.- El Estado y los Municipios, pagarán del Fondo General de Participaciones, las ministraciones correspondientes a la potencialización del Fondo de Estabilización de los Ingresos de las Entidades Federativas, en la parte proporcional que de este fondo les corresponda, y conforme la determinación que al efecto establece el artículo 4 de esta Ley.
+El descuento correspondiente lo aplicará la Secretaría de Finanzas e informará a los Municipios cuando esta se lleve a cabo.
