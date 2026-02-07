@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. La entrada en vigor del presente Decreto, no producirá efectos retroactivos en los procedimientos que se encuentren en trámite, para la obtención de un Reconocimiento o Distintivo ante la autoridad competente.

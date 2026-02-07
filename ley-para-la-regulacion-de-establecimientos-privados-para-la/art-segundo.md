@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. El Consejo deberá instalar el Comité Estatal para la Supervisión de Establecimientos Especializados en Adicciones, dentro de los treinta días siguientes a la entrada en vigor del presente Decreto.
