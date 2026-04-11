@@ -1,0 +1,3 @@
+P.O. 10 DE ABRIL DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO 455.- SE REFORMA LA FRACCIÓN XVIII DEL ARTÍCULO 90 Y EL ARTÍCULO 270, DE LA LEY ORGÁNICA DEL CONGRESO DEL ESTADO INDEPENDIENTE, LIBRE Y SOBERANO DE COAHUILA DE ZARAGOZA".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
