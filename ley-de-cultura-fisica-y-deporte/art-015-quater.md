@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE MAYO DE 2026)
+ARTÍCULO 15 QUATER.- El Estado, los municipios y las organizaciones deportivas registradas en el Estado deberán contar con protocolos para la prevención, atención y sanción del acoso sexual, hostigamiento y cualquier otra forma de violencia de género en el ámbito deportivo con un apego a la Ley de Acceso a las Mujeres a una Vida Libre de Violencia para el Estado de Coahuila de Zaragoza, y de más (sic) normatividad aplicable.

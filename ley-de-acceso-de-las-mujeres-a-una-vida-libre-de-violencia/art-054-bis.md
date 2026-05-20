@@ -6,5 +6,11 @@ III. Promover programas que permitan a las mujeres el acceso, y permanencia en p
 IV. Llevar a cabo campañas en los sectores productivos, de no discriminación y erradicación de toda forma de violencia contra las mujeres, a fin de concientizar sobre la necesidad de empoderar a la mujer dentro del sector laboral;
 V. Coadyuvar con las dependencias y entidades de la Administración Pública Estatal y municipal para el efectivo cumplimiento de esta Ley;
 VI. Celebrar convenios de cooperación, coordinación y concertación en la materia;
-VII. Orientar a las víctimas de violencia en el ámbito laboral y sobre las instituciones que prestan atención y protección a las mujeres víctimas de este tipo de violencia, en los términos señalados en la legislación vigente; y
-VIII. Las demás previstas para el cumplimiento de la presente Ley.
+(REFORMADA, P.O. 19 DE MAYO DE 2026)
+VII. Orientar a las víctimas de violencia en el ámbito laboral y sobre las instituciones que prestan atención y protección a las mujeres víctimas de este tipo de violencia, en los términos señalados en la legislación vigente.
+(REFORMADA [N. DE E. ADICIONADA], P.O. 19 DE MAYO DE 2026)
+VIII. Promover la vinculación con las empresas que les permita la reinserción laboral a las mujeres que se han dedicado preponderantemente a los cuidados del hogar.
+(ADICIONADA, P.O. 19 DE MAYO DE 2026)
+IX. Diseñar, con una visión integral y transversal, una política estatal con perspectiva de género orientada a la prevención, atención, sanción y erradicación de la violencia laboral contra las mujeres, así como para reducir y erradicar la brecha salarial de género en los términos señalados en la legislación vigente.
+(ADICIONADA [N. DE E. REUBICADA], P.O. 19 DE MAYO DE 2026)
+X. Las demás previstas para el cumplimiento de la presente Ley.
