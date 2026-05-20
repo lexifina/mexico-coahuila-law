@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 19 DE MAYO DE 2026)
+Artículo 70 Bis 4. La Secretaría, en coordinación con las instituciones del sector salud, fomentará y desarrollará programas con acciones de promoción, prevención, detección, tratamiento y rehabilitación para atender de manera integral la salud de las mujeres, de acuerdo a las normas oficiales establecidas.
+En la medida de sus posibilidades, promoverá la organización de un Comité Interdisciplinario de Salud de las Mujeres con el propósito de promover la inclusión de la perspectiva de género en las acciones de investigación, prevención, atención, conocimiento, tratamiento y rehabilitación de la salud.
