@@ -1,8 +1,8 @@
 (ADICIONADO, P.O. 20 DE MARZO DE 2001)
 Artículo 158-U. Los Ayuntamientos tendrán las competencias, facultades y obligaciones siguientes:
 I. En materia de gobierno y régimen interior:
-(REFORMADO, P.O. 16 DE MARZO DE 2009)
-1. Formular, aprobar y publicar los bandos de policía y gobierno, los reglamentos, circulares y disposiciones administrativas de observancia general dentro de sus respectivas jurisdicciones; el Reglamento de Seguridad Pública Municipal deberá estar ajustado a las disposiciones de la Constitución Política de los Estados Unidos Mexicanos, la Constitución Política del Estado y a las Leyes federales y estatales aplicables.
+(REFORMADO, P.O. 1 DE SEPTIEMBRE DE 2026)
+1. Formular, aprobar y publicar los bandos de policía y gobierno, los reglamentos, circulares y disposiciones administrativas de observancia general dentro de sus respectivas jurisdicciones; el Reglamento de Seguridad Pública Municipal deberá ser ajustado a las disposiciones de la Constitución Política de los Estados Unidos Mexicanos, la Constitución Política del Estado y a las Leyes federales y estatales aplicables. La formulación de los ordenamientos y disposiciones municipales considerará la perspectiva de género, así como los mecanismos que garanticen la igualdad sustantiva.
 2. Intervenir en el proceso legislativo constitucional u ordinario de conformidad con los artículos 59, 62 y 196 de esta Constitución.
 3. Promover ante la Suprema Corte de Justicia de la Nación las controversias constitucionales a que se refiere el artículo 105 de la Constitución Política de los Estados Unidos Mexicanos.
 4. Promover ante el Pleno del Tribunal Superior de Justicia las controversias constitucionales y acciones de inconstitucionalidad locales a que se refiere el artículo 158 de esta Constitución.
