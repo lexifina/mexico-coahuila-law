@@ -9,7 +9,8 @@ I. En materia de gobierno y régimen interior:
 5. Formular, aprobar, controlar y evaluar el Plan de Desarrollo Municipal, con arreglo a la ley.
 6. Nombrar entre los munícipes, comisiones permanentes y temporales, para la atención de los asuntos públicos, de conformidad con lo que establezca la ley de la materia y la reglamentación respectiva.
 7. Actualizar la información demográfica, económica y social que coadyuve a la mejor toma de decisiones de gobierno y colaborar con las autoridades federales y estatales en la formación de censos y estadísticas de toda índole.
-8. Conceder licencias hasta por quince días para separarse en lo individual de sus cargos, al presidente municipal, síndicos y regidores. En el caso de que las ausencias excedan de los plazos señalados, se requerirá autorización del Congreso del Estado.
+(REFORMADO, P.O. 1 DE SEPTIEMBRE DE 2026)
+8. Conceder licencias hasta por quince días para separarse en lo individual de sus cargos, a la presidenta o el presidente municipal, síndica o síndico y regidoras o regidores. En el caso de que las ausencias excedan de los plazos señalados, se requerirá autorización del Congreso del Estado.
 9. Dictar, con el acuerdo de las dos terceras partes de los miembros de los Ayuntamientos, las resoluciones que afecten el patrimonio inmobiliario municipal, con arreglo a la ley.
 10. Aprobar, con el acuerdo de las dos terceras partes de los miembros de los Ayuntamientos, los actos o convenios que comprometan al Municipio por un plazo mayor al período del Ayuntamiento, con arreglo a la ley.
 11. Integrar un Comité Municipal de Seguridad Pública y organizar rondines de seguridad y tranquilidad social. Para tal efecto, el presidente municipal aprobará la designación y el funcionamiento del personal que integre los rondines de seguridad pública, los que tendrán el carácter de policía auxiliar.
