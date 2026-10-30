@@ -1,0 +1,11 @@
+{
+  "path": "mx-coa",
+  "code": "MX-COA",
+  "name": "Coahuila",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-coahuila-law",
+  "build": "built: constitution, codes and laws (192 ordenamientos, 1583 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
